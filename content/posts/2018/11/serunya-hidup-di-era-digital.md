@@ -20,13 +20,13 @@ Era Digital dapat diartikan sebagai jaman dimana hampir seluruh aktivitas manusi
 
 Banyak aspek dari kehidupan masyarakat yang mengalami perubahan karena kemunculan Teknologi Digital seperti aspek ekonomi,  politik, psikologis, gaya hidup, tren, dan lain sebagainya.
 
-Perubahan paling signifikan yang sangat kita rasakan adalah peralihan dari media cetak menjadi media digital seperti memanfaatkan [aplikasi produktivitas](https://34.126.127.69/aplikasi-produktivitas/) untuk menunjang kinerjamu.
+Perubahan paling signifikan yang sangat kita rasakan adalah peralihan dari media cetak menjadi media digital seperti memanfaatkan [aplikasi produktivitas](https://besttutorial.net/aplikasi-produktivitas/) untuk menunjang kinerjamu.
 
 Hal ini sangat terlihat ketika para perusahaan media cetak seperti media massa seperti koran, majalah dan tabloid yang tidak mengikuti perkembangan zaman ( teknologi digital ) dengan sendirinya mengalami gulung tikar.
 
 Dalam artian mereka tidak melakukan _scaleup_ bisnisnya untuk merambah ke media digital, tetap kekeh dan yakin pada bisnis yang sedang berjalan sedangkan kebutuhan masyarakat sudah mulai menggunakan media digital.
 
-Hal ini menunjukkan betapa besar pengaruhnya era digital dan [dampak internet](https://34.126.127.69/dampak-positif-dan-negatif-internet/) pada kehidupan manusia. Ini baru saja dari sisi media berita, selain itu ada juga aspek utama yang begitu penting bagi manusia yaitu _shoping._
+Hal ini menunjukkan betapa besar pengaruhnya era digital dan [dampak internet](https://besttutorial.net/dampak-positif-dan-negatif-internet/) pada kehidupan manusia. Ini baru saja dari sisi media berita, selain itu ada juga aspek utama yang begitu penting bagi manusia yaitu _shoping._
 ![serunya hidup di era digital 4](/images/serunya-hidup-di-era-digital-4-1024x1024.jpg)
 Dulu sebelum masuknya  teknologi komputer dan internet ke Indonesia, semua orang berbelanja segala kebutuhan hidup dari mulai sandang dan pangan di pasar tradisional, toko atau super market.
 
@@ -86,7 +86,7 @@ Jika semakin banyak orang yang tertarik untuk menonton videomu, maka penghasilan
 
 Ada dua sumber penghasilan yang diberikan oleh Google yaitu dari iklan yang ada di video dan dari _subscriber Youtube Red._
 
-Baca Juga [Cara Screenshoot Laptop](https://34.126.127.69/cara-screenshot-di-laptop/).
+Baca Juga [Cara Screenshoot Laptop](https://besttutorial.net/cara-screenshot-di-laptop/).
 
 ## Menjadi Selebgram
 

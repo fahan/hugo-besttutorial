@@ -34,7 +34,7 @@ Dalam hal rumah tangga, apakah pasanganmu saat ini merupakan jodohmu?
 
 Jika suatu saat nanti berpisah misalnya bercerai, apa masih bisa dikatakan sebagai jodoh?
 
-Jadi [Apa itu jodoh](https://34.126.127.69/apa-itu-jodoh/) ?
+Jadi [Apa itu jodoh](https://besttutorial.net/apa-itu-jodoh/) ?
 
 [![buku menantimu diujung rindu](/images/ads-mdur.png)](https://api.whatsapp.com/send?phone=6285338226692&text=Assalamualaikum%20Admin%20Saya%20Mau%20Pesan%20Bukunya)
 
@@ -266,4 +266,4 @@ Adapun waktu selanjutnya untuk memanjatkan doa cepat mendapatkan jodoh adalah pa
 
 * * *
 
-Selain berdoa dan melakukan berbagai amalan yang disebutkan diatas kamu juga bisa berikhtiar dan berusaha dengan memanfaatkan teknologi pada jaman sekarang. Kamu bisa memanfaatkan teknologi yaitu dengan menggunakan [aplikasi cari jodoh](https://34.126.127.69/aplikasi-cari-jodoh-terpopuler/) yang bisa kamu instal di hpmu. Nmaun kamu harus selektif dan bijak dalam menggunakan [aplikasi untuk mencari jodoh](https://34.126.127.69/aplikasi-cari-jodoh-terpopuler/) tersebut.
+Selain berdoa dan melakukan berbagai amalan yang disebutkan diatas kamu juga bisa berikhtiar dan berusaha dengan memanfaatkan teknologi pada jaman sekarang. Kamu bisa memanfaatkan teknologi yaitu dengan menggunakan [aplikasi cari jodoh](https://besttutorial.net/aplikasi-cari-jodoh-terpopuler/) yang bisa kamu instal di hpmu. Nmaun kamu harus selektif dan bijak dalam menggunakan [aplikasi untuk mencari jodoh](https://besttutorial.net/aplikasi-cari-jodoh-terpopuler/) tersebut.

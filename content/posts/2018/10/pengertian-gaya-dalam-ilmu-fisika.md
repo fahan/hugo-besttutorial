@@ -169,7 +169,7 @@ Koordinasi dari berbagai pergerakan otot yang bisa menggerakkan tubuh manusia it
 
 #### **Gaya** **Gravitasi**
 
-Gaya yang sudah dangat umum dikenal oleh semua orang yaitu gaya gravitasi, atau yang lebih familiarnya termasuk dalam [**Hukum Newton**](https://34.126.127.69/hukum-newton/).
+Gaya yang sudah dangat umum dikenal oleh semua orang yaitu gaya gravitasi, atau yang lebih familiarnya termasuk dalam [**Hukum Newton**](https://besttutorial.net/hukum-newton/).
 
 Bumi memiliki gaya tarik sendiri yang menimbulkan benda yang berada dibumi akan ditarik oleh bumi, Gaya tarik inilah yang disebut gaya gravitasi. Sebenarnya semua benda yang memiliki massa diseluruh alam semesta ini memiliki gaya gravitasnya masing-masing tidak hanya bumi.
 

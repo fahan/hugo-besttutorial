@@ -57,4 +57,4 @@ Makna dari doa yang ketiga yaitu "Ya Allah, Aku memohon kepadaMu kebaikan dari p
 
 Ketiga doa sebelum bekerja yang telah disebutkan diatas bisa kita amalkan bersama sebagai seorang muslim. Kamu bisa memilih salah satu doa yang cocok buatmu, baca dan hafalkan lalu amalkan saat akan memulai suatu pekerjaan.
 
-Semoga dengan mengamalkan doa ini agar [dipermudah segala urusan](https://34.126.127.69/doa-dimudahkan-segala-urusan/) dan rezeki kita akan ditambah oleh allah SWT, Amin.
+Semoga dengan mengamalkan doa ini agar [dipermudah segala urusan](https://besttutorial.net/doa-dimudahkan-segala-urusan/) dan rezeki kita akan ditambah oleh allah SWT, Amin.

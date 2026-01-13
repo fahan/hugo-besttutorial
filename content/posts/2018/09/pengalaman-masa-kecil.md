@@ -16,7 +16,7 @@ _Childhood_ atau bisa juga dibilang pengalaman masa kecil adalah masa dimana 
 
 Namun, setiap orang memiliki pengalaman masa kecil yang berbeda. Ada yang punya pengalaman lucu, menyenangkan dan menantang. Ada juga yang memiliki pengalaman yang sedih, menyakitkan serta memalukan untuk diingat. Diantara semua jenis pengalaman itu pasti ada momen yang tidak pernah bisa pudar dari ingatan kita atau tak terlupakan.
 
-Dalam artikel ini saya akan membagikan pengalaman saya yang tak terlupakan yang mayoritas orang lain juga pasti pernah mengalaminya. Tentunya ini adalah episode lanjutan dari artikel sebelumnya, mungkin melenceng dikit hihi.... Bagi yang belum membacanya, kalian wajib membacanya dulu ya :D, klik aja disini **\-> [pengalaman menulis pengalaman](https://34.126.127.69/pengalaman-menulis/).**
+Dalam artikel ini saya akan membagikan pengalaman saya yang tak terlupakan yang mayoritas orang lain juga pasti pernah mengalaminya. Tentunya ini adalah episode lanjutan dari artikel sebelumnya, mungkin melenceng dikit hihi.... Bagi yang belum membacanya, kalian wajib membacanya dulu ya :D, klik aja disini **\-> [pengalaman menulis pengalaman](https://besttutorial.net/pengalaman-menulis/).**
 
 Bagi kalian yang merasa pernah mengalami masa kecil atau istilah ingglisnya _childhood,_ pasti merasakan rasa rindu terhadap segala apa yang telah kita alami pada masa itu, atau bisa dibilang nostalgia.
 

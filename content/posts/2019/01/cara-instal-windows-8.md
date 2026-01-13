@@ -138,7 +138,7 @@ pixabay.com | USB Flashdrive
 
 Selain beberapa persiapan di atas, jangan lupa mempersiapkan pula beberapa hal lain. Diantaranya seperti mengenal lebih jauh spesifikasi komputer anda seperti tipe processor baik 32-bit maupun 64-bit.
 
-Anda bisa mengetahui caranya melalui artikel [cara melihat spesifikasi komputer atau laptop](https://34.126.127.69/cara-melihat-spesifikasi-laptop/).
+Anda bisa mengetahui caranya melalui artikel [cara melihat spesifikasi komputer atau laptop](https://besttutorial.net/cara-melihat-spesifikasi-laptop/).
 
 Jangan lupa juga untuk menyiapkan driver windows sehingga kerja windows 8 pun lebih maksimal. Disarankan pula disini agar Anda menyiapkan program lain yang di butuhkan sehingga bisa sekalian di instal.
 
@@ -156,21 +156,21 @@ pngtree.com
 
 </figure>
 
-Ada beberapa langkah instalasi dalam rangkaian cara instal windows 8 yang harus Anda kenali. Sebenarnya caranya hampir sama dengan ataupun [cara instal windows 10](https://34.126.127.69/tutorial-cara-instal-windows-10/).
+Ada beberapa langkah instalasi dalam rangkaian cara instal windows 8 yang harus Anda kenali. Sebenarnya caranya hampir sama dengan ataupun [cara instal windows 10](https://besttutorial.net/tutorial-cara-instal-windows-10/).
 
 Mulai dari tahap awal, penginstalan, hingga tahap akhir berupa pengisian data terkait perangkat Anda.
 
 Kali ini, Anda bisa mempelajari lebih jauh serangkaian proses tersebut sebagaimana di bahas dalam daftar berikut ini.
 
 1. Langkah pertama yang harus di lakukan disini adalah menyalakan laptop. Setelah itu langsung saja masuk ke BIOS dengan menekan tombol **Del**. Atau adakalanya mungkin beberapa merk menggunakan tombol **F2**.
-2. Setelah di menu BIOS ini yang perlu Anda cari adalah boot. Sedangkan tujuannya adalah untuk mengatur boot pertamanya sudah DVD atau flashdisk. Tergantung dengan apa yang Anda gunakan dalam instalasi tersebut, kamu bisa menggunakan [bootable flasdisk](https://34.126.127.69/cara-membuat-bootable-flashdisk/) untuk melakukan instalasinya.
+2. Setelah di menu BIOS ini yang perlu Anda cari adalah boot. Sedangkan tujuannya adalah untuk mengatur boot pertamanya sudah DVD atau flashdisk. Tergantung dengan apa yang Anda gunakan dalam instalasi tersebut, kamu bisa menggunakan [bootable flasdisk](https://besttutorial.net/cara-membuat-bootable-flashdisk/) untuk melakukan instalasinya.
 3. Ketika pengaturan boot selesai, bisa langsung menuju ke pilihan save and restart. Kemudian, untuk memulai proses instalasi Anda, langsung saja tekan **enter**.
 4. Ketika muncul kolom bahasa dan persetujuan, pilih saja bahasanya **English** lalu klik **next**. Setelahnya Anda akan di minta konfirmasi dengan menekan **install now**.
 5. Masih belum mulai proses instalasi, terlebih dahulu Anda akan di minta memasukan **product key** yang biasanya tertera pada bungkus DVD yang sudah di beli. Setelah itu konfirmasi lagi persetujuan Anda.
 6. Nah, untuk memastikan instalasi Anda benar-benar fresh, maka silahkan pilih **custom advanced** pada tahap cara instal windows 8 berikutnya.
 7. Sebelum instalasi di mulai, Anda harus mengatur partisi. Salah satu alasannya adalah untuk menentukan dimana instalasi ini akan di lakukan. Dalam tahap ini Anda bisa menghapus partisi lama dan menggantinya dengan yang baru. Sedangkan beberapa pilihannya adalah delete untuk menghapus, new untuk membuat yang baru dan format untuk pengaturannya.
 
-Baca Juga  [Cara Screenshoot di Laptop.](https://34.126.127.69/cara-screenshot-di-laptop/)
+Baca Juga  [Cara Screenshoot di Laptop.](https://besttutorial.net/cara-screenshot-di-laptop/)
 
 ## **Mulai Instalasi Windows 8**
 
@@ -196,4 +196,4 @@ Termasuk untuk beberapa perangkat yang sudah terkonfigurasi dengan windows ini, 
 
 Setelah mempelajari lebih jauh proses instalasi tersebut, kini Anda pun bisa melakukannya sendiri dengan menerapkan cara instal windows 8 dengan cepat.
 
-Pastikan dalam proses ini persiapan sudah di lakukan dengan maksimal. Selain itu, usahakan tetap berhati-hati sehingga tidak terjadi kesalahan yang bisa membahayakan perangkat Anda karena instalasi windows 8 berbeda dengan [instalasi windows XP](https://34.126.127.69/cara-instal-windows-xp/).
+Pastikan dalam proses ini persiapan sudah di lakukan dengan maksimal. Selain itu, usahakan tetap berhati-hati sehingga tidak terjadi kesalahan yang bisa membahayakan perangkat Anda karena instalasi windows 8 berbeda dengan [instalasi windows XP](https://besttutorial.net/cara-instal-windows-xp/).

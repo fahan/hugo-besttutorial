@@ -14,11 +14,11 @@ slug: "pengalaman-mahasiswa-it"
 
 Ketertarikan seseorang akan teknologi atau komputer membuat orang yang baru lulus sekolah setingkat SMA ingin menlanjutkan kuliah di jurusan Teknik Informatika atau jurusan lain yang sejenis sehingga memiliki pengalaman mahasiswa sebagai mahasiswa IT.
 
-Karena Jurusan IT merupakan salah satu [jurusan terbaik](https://34.126.127.69/jurusan-kuliah-terbaik) dan terfavorit di Indonesia. Tapi tidak semua orang yang masuk jurusan IT karena benar-benar minat untuk mempelajari ilmu tentang komputer.
+Karena Jurusan IT merupakan salah satu [jurusan terbaik](https://besttutorial.net/jurusan-kuliah-terbaik) dan terfavorit di Indonesia. Tapi tidak semua orang yang masuk jurusan IT karena benar-benar minat untuk mempelajari ilmu tentang komputer.
 
 Ada yang dikarenakan prospek kerja dengan gaji yang menggiurkan, ada juga yang masuk karena alasan ngikut temen. Di perguruan tinggi, mahasiswa jurusan IT adalah masiswa yang paling dicari oleh mahasiswa lain, karena apa?.
 
-Mahasiswa IT memiliki segudang [mata kuliah tentang teknologi](https://34.126.127.69/daftar-mata-kuliah-teknik-informatika) , sehingga belajar tentang banyak hal tentang komputer seperti bongkar PC, bongkar laptop, bongkar HP dan bikin aplikasi, jadi sering diaggap kaya tukang servis aja.
+Mahasiswa IT memiliki segudang [mata kuliah tentang teknologi](https://besttutorial.net/daftar-mata-kuliah-teknik-informatika) , sehingga belajar tentang banyak hal tentang komputer seperti bongkar PC, bongkar laptop, bongkar HP dan bikin aplikasi, jadi sering diaggap kaya tukang servis aja.
 
 Bahkan mahasiswa IT dianggap bisa menggunakan segala aplikasi yang ada di komputer seperti editing foto/video sampai dianggap bisa ngehack apapun XD.
 
@@ -54,7 +54,7 @@ Permasalahan ini jadi ladang penghasilan para mahasiswa IT.
 
 Bagi mereka yang mengalami masalah dengan laptopnya, untuk memperbaikinya mereka kadang mencari mahasiswa IT untuk memperbaikinya.
 
-Dari situ para mahasiswa IT bisa mendapatkan komisi dari apa yang mereka perbaiki, dengan melakukan [instal ulang os windows](https://34.126.127.69/tutorial-cara-instal-windows-10/) saja sudah bisa dapat Cepek, lumayan kan .
+Dari situ para mahasiswa IT bisa mendapatkan komisi dari apa yang mereka perbaiki, dengan melakukan [instal ulang os windows](https://besttutorial.net/tutorial-cara-instal-windows-10/) saja sudah bisa dapat Cepek, lumayan kan .
 
 Tidak hanya laptop, _smartphone_ bahkan printer pun juga bisa mereka perbaiki.
 

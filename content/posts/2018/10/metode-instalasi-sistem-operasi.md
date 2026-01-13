@@ -10,7 +10,7 @@ coverImage: "metode-instalasi-sistem-operasi.jpg"
 slug: "metode-instalasi-sistem-operasi"
 ---
 
-**Metode instalasi sistem operasi** - Kebutuhan akan Sistem Operasi adalah suatu hal yang utama yang harus dimiliki suatu perangkat seperti laptop atau [komputer](https://34.126.127.69/pengertian-komputer/).
+**Metode instalasi sistem operasi** - Kebutuhan akan Sistem Operasi adalah suatu hal yang utama yang harus dimiliki suatu perangkat seperti laptop atau [komputer](https://besttutorial.net/pengertian-komputer/).
 
 Dimana Sistem Operasi bertindak sebagai perangkat lunak utama yang menjadi dasar seluruh aplikasi.
 
@@ -42,7 +42,7 @@ pixabay.com | Sistem Operasi Komputer
 
 Sistem Operasi mempunyai sejarah perkembangan yang cukup panjang, dimana **sejarah sistem operasi** beriringan dengan sejarah perkembangan komputer.
 
-Hal ini di bahas mendalam dalam salah satu [mata kuliah teknik informatika](https://34.126.127.69/daftar-mata-kuliah-teknik-informatika/) yaitu mata kuliah _operating system,_ tidak hanya di perguruan tinggi di sekolah kejuruan atau SMK juga diajarkan.
+Hal ini di bahas mendalam dalam salah satu [mata kuliah teknik informatika](https://besttutorial.net/daftar-mata-kuliah-teknik-informatika/) yaitu mata kuliah _operating system,_ tidak hanya di perguruan tinggi di sekolah kejuruan atau SMK juga diajarkan.
 
 Sehingga hal ini memunculkan berbagai macam tipe sistem operasi.
 
@@ -120,7 +120,7 @@ Supaya dapat melakukan instalasi sistem operasi dengan benar perlu mengetahui me
 
 Sistem operasi yang diinstal pada memori komputer berupa hardisk dan dibagi dalam beberapa partisi. Sebenarnya Hardisk juga merupakan salah satu faktor yang mempengaruhi pemilihan metode instalasi sistem operasi.
 
-Metode instalasi OS merupakan cara yang dapat digunakan dalam melakukan pemasangan sistem operasi pada komputer. Pemilihan metode yang digunakan harus menyesuaikan [komponen komputer](https://34.126.127.69/tiga-komponen-komputer/) yang terdapat pada komputer yang akan dipasangi sistem operasi dan juga OSnya.
+Metode instalasi OS merupakan cara yang dapat digunakan dalam melakukan pemasangan sistem operasi pada komputer. Pemilihan metode yang digunakan harus menyesuaikan [komponen komputer](https://besttutorial.net/tiga-komponen-komputer/) yang terdapat pada komputer yang akan dipasangi sistem operasi dan juga OSnya.
 
 Ada empat metode dalam melakukan pemasangan Sistem Operasi, yaitu:
 

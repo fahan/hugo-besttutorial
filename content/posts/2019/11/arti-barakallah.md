@@ -18,7 +18,7 @@ Terutama bagi mereka yang mengikuti suatu kelompok oraganisasi yang berbau agama
 
  
 
-Pada dasarnya, pengucapan kata Barakallah merupakan [doa](https://34.126.127.69/doa-rabithah/) untuk seseorang supaya diberikan limpahan rahmat dan hidayah dari Allah Swt. dalam segela sesuatu atas kehidupannya.
+Pada dasarnya, pengucapan kata Barakallah merupakan [doa](https://besttutorial.net/doa-rabithah/) untuk seseorang supaya diberikan limpahan rahmat dan hidayah dari Allah Swt. dalam segela sesuatu atas kehidupannya.
 
  
 
@@ -58,7 +58,7 @@ Barakallah berarti sebagai doa yang sering diucapkan ketika berbicara. Namun tid
 
 ### 1. Barakallahu Fiik
 
-Barakallahu fiik merupakan ucapan doa yang sangat umum. [Mendoakan](https://34.126.127.69/doa-mendapatkan-jodoh-yang-diinginkan/) keberkahan kepada orang yang sedang berkomunikasi dengan kita.
+Barakallahu fiik merupakan ucapan doa yang sangat umum. [Mendoakan](https://besttutorial.net/doa-mendapatkan-jodoh-yang-diinginkan/) keberkahan kepada orang yang sedang berkomunikasi dengan kita.
 
 Ucapan ini bisa kamu ucapkan dalam kondisi apapun, baik itu memberikan selamat dan mendoakan seseorang agar diberkahi Allah.
 
@@ -104,7 +104,7 @@ Dalam bertambahnya umur, pasti ada dua perasaan yang kamu rasakan, pertama senan
 
 ### 2. Pernikahan
 
-[Pernikahan](https://34.126.127.69/hadits-tentang-pernikahan/) adalah acara yang sangat bersejarah bagi sebagian orang yang memulai untuk beribadah Rumah Tangga. Pernikahan juga merupakan ibadah yang sangat besar pahalanya. Sekaligus momen yang membagiakan bagi pengantinnya. Untuk menyikapi hal ini, kamu bisa mengucapkan kalimat “Barakallahu Fiikum” kepada mereka agar memperlancar dan diberi keberkahan atas pernikahan serta kehidupan rumah tangganya.
+[Pernikahan](https://besttutorial.net/hadits-tentang-pernikahan/) adalah acara yang sangat bersejarah bagi sebagian orang yang memulai untuk beribadah Rumah Tangga. Pernikahan juga merupakan ibadah yang sangat besar pahalanya. Sekaligus momen yang membagiakan bagi pengantinnya. Untuk menyikapi hal ini, kamu bisa mengucapkan kalimat “Barakallahu Fiikum” kepada mereka agar memperlancar dan diberi keberkahan atas pernikahan serta kehidupan rumah tangganya.
 
 \[caption id="attachment\_2948" align="aligncenter" width="1024"\]![pernikahan impian](/images/pernikahan-islami.jpg) lightroompreset.com\[/caption\]
 
@@ -126,7 +126,7 @@ ketika salah satu dari teman, kerabat atau tetangga kamu yang melahirkan, Hendak
 
 Kesuksesan dan Keberhasilan merupakan suatu pencapaian yang tidak mudah. Bagi siapapun yang mendapatkannya tentu saja akan merasakan senang sekaligus bangga atas apa yang sudah diraihnya.
 
-Alangkah baiknya kita sebagai teman atau kerabat dekatnya memberikan doa bagi mereka dengan mengucapkan “Barakallah”, agar [kesuksesan](https://34.126.127.69/doa-agar-dagangan-laris/) dan perjuangan orang tersebut diberkahi oleh Allah Swt. serta mendapatkan ridhanya.
+Alangkah baiknya kita sebagai teman atau kerabat dekatnya memberikan doa bagi mereka dengan mengucapkan “Barakallah”, agar [kesuksesan](https://besttutorial.net/doa-agar-dagangan-laris/) dan perjuangan orang tersebut diberkahi oleh Allah Swt. serta mendapatkan ridhanya.
 
  
 

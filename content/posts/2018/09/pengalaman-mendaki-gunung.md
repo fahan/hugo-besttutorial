@@ -14,7 +14,7 @@ coverImage: "alone-climbing.jpg"
 slug: "pengalaman-mendaki-gunung"
 ---
 
-Mendaki gunung merupakan salah satu hobi dari sekian banyak hobi yang disukai pemuda jaman sekarang, mendaki gunung menjadi salah satu [pengalaman mahasiswa](https://34.126.127.69/pengalaman-mahasiswa) yang tidak boleh terlewatkan.
+Mendaki gunung merupakan salah satu hobi dari sekian banyak hobi yang disukai pemuda jaman sekarang, mendaki gunung menjadi salah satu [pengalaman mahasiswa](https://besttutorial.net/pengalaman-mahasiswa) yang tidak boleh terlewatkan.
 
 Selain hobi ada yang menjadikannya sebuah pekerjaan, bisa menjadi pemandu atau bahkan menjadi seorang _porter_. Namun ada yang mendaki gunung karena ikut-ikutan tren aja, biar keliatan keren kaya yang ada di film 5 CM.
 

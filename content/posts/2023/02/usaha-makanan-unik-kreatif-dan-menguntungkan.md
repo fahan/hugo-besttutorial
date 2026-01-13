@@ -9,7 +9,7 @@ slug: "usaha-makanan-unik-kreatif-dan-menguntungkan"
 
 Bagi Anda yang mencintai dunia memasak, tak ada salahnya untuk mencoba usaha rumahan satu ini. Dengan bermodalkan hobi, ketelatenan serta kesungguhan, maka keuntungan pun pasti akan datang menghampiri. Yups, ialah **usaha makanan unik dan kreatif** yang saat ini cukup ramai di masyarakat.
 
-Berikut akan diulas untuk Anda, dimulai dari jenis makanan yang sedang trending, cara [mengelola usaha](https://34.126.127.69/wp-admin/post.php?post=2862&action=edit) kuliner yang baik, hingga beberapa tips agar pelanggan berdatangan.
+Berikut akan diulas untuk Anda, dimulai dari jenis makanan yang sedang trending, cara mengelola usaha kuliner yang baik, hingga beberapa tips agar pelanggan berdatangan.
 
 ## Hamburger Hitam
 
@@ -155,7 +155,7 @@ Setelah itu lumuri dengan tepung roti ataupun remahan biskut. Ice cream pun siap
 
 ### Berkomitmen kuat
 
-Beberapa hal yang wajib Anda terapkan dalam menjalankan bisnis kuliner yang anti mainstream diantaranya, memiliki komitmen yang kuat. Dengan [komitmen](https://34.126.127.69/wp-admin/post.php?post=2531&action=edit) yang kukuh seterjal apapun usaha tersebut nantinya, Anda akan selalu siap dan tak putus asa untuk terus mencoba.
+Beberapa hal yang wajib Anda terapkan dalam menjalankan bisnis kuliner yang anti mainstream diantaranya, memiliki komitmen yang kuat. Dengan komitmen yang kukuh seterjal apapun usaha tersebut nantinya, Anda akan selalu siap dan tak putus asa untuk terus mencoba.
 
 Namun sebaliknya, jika keinginan Anda hanya setengah – setengah, maka hasil yang akan didapatkan juga tak akan maksimal. Tanamkan rasa percaya diri bahwa usaha Anda akan berhasil kedepannya.
 

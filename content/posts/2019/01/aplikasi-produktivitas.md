@@ -293,11 +293,11 @@ Fitur:
 
 Biaya: BEBAS
 
-Jadi tetap dengan aplikasi di atas yang memicu kamu tetap produktiv!, satu hal yang penting juga kamu harus selalu mengupdate driver laptopmu untuk beberapa aplikasi PC diatas yang memerlukan driver terupdate, baca caranya dalam [cara update driver laptop](https://34.126.127.69/cara-update-driver-laptop/).
+Jadi tetap dengan aplikasi di atas yang memicu kamu tetap produktiv!, satu hal yang penting juga kamu harus selalu mengupdate driver laptopmu untuk beberapa aplikasi PC diatas yang memerlukan driver terupdate, baca caranya dalam [cara update driver laptop](https://besttutorial.net/cara-update-driver-laptop/).
 
 ## Produktivlah Agar Aplikasi Produktivitasmu Benar-benar Berfungsi
 
-Selain menggunakan aplikasi di atas, mulailah [menciptakan kebiasaan baik](https://34.126.127.69/cara-membangun-kebiasaan-baik) yang benar-benar produktif yang akan dibahas berikut ini.
+Selain menggunakan aplikasi di atas, mulailah [menciptakan kebiasaan baik](https://besttutorial.net/cara-membangun-kebiasaan-baik) yang benar-benar produktif yang akan dibahas berikut ini.
 
 ## Ubah Pagimu Menjadi Produktif
 
@@ -365,7 +365,7 @@ Karena kamu menghilangkan kebiasaan yang telah kamu bangun selama bertahun-tahun
 
 Bayangkan menyelesaikan tugas terpenting kamu setiap hari dan merasa memegang kendali. Bagian terbaiknya adalah aplikasi smartphonemu hanya menyumbang sebagian kecil dari kesuksesanmu. Kamu telah menghilangkan kebiasaan buruk dan menerapkan gaya hidup yang lebih produktif.
 
-Luar biasa bukan?, inilah bagaimana [serunya hidup di era digital](https://34.126.127.69/serunya-hidup-di-era-digital/).
+Luar biasa bukan?, inilah bagaimana [serunya hidup di era digital](https://besttutorial.net/serunya-hidup-di-era-digital/).
 
 Kamu sekarang memiliki daftar beberapa aplikasi terbaik di luar sana untuk membantu kam menjadi produktif. Tapi jangan hanya mengandalkan aplikasi ini. Alih-alih, berlatihlah menetapkan niatmusetiap pagi.
 

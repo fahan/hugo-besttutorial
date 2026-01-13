@@ -40,7 +40,7 @@ Laptop yang di gunakan disini sangat di rekomendasikan adalah milik pribadi sehi
 
 Selain itu, usahakan memastikan pula versi windows pada laptop terlebih dahulu. Dalam hal ini, Anda bisa memilih windows 8, windows 8.1, atau windows 10.
 
-Perhatikan juga spesifikasi laptop yang ada, ikuti [panduan melihat spesifikasi laptop](https://34.126.127.69/cara-melihat-spesifikasi-laptop/) untuk lebih detailnya. Karena Aplikasi WA memerlukan spesifikasi minimum untuk diinstal, walaupun sebenarnya seluruh laptop jaman sekarang sudah sangat mumpuni untuk aplikasi chating yang ada.
+Perhatikan juga spesifikasi laptop yang ada, ikuti [panduan melihat spesifikasi laptop](https://besttutorial.net/cara-melihat-spesifikasi-laptop/) untuk lebih detailnya. Karena Aplikasi WA memerlukan spesifikasi minimum untuk diinstal, walaupun sebenarnya seluruh laptop jaman sekarang sudah sangat mumpuni untuk aplikasi chating yang ada.
 
 Selain itu, bagi yang menggunakan WA di laptop bersamaan dengan aktifnya WA di smartphone, maka akan menggunakan kode QR untuk mengaktifkannya.
 
@@ -66,7 +66,7 @@ Ada beberapa cara instal WA di laptop yang bisa Anda lakukan. Namun, bagaimana p
 
 Biasanya, untuk menambah aplikasi di laptop tentu banyak yang menggunakan microsoft store. Dalam instalasi WA pun Anda juga bisa memamfaatkannya.
 
-Instal WA melalui microsoft store ini sebenarnya simpel-simpel saja, apalagi bagi yang sudah [instal windows 10](https://34.126.127.69/tutorial-cara-instal-windows-10/) . Hanya dengan beberapa klik, proses instalasi sudah beres dan WA di laptop pun bisa langsung di gunakan.
+Instal WA melalui microsoft store ini sebenarnya simpel-simpel saja, apalagi bagi yang sudah [instal windows 10](https://besttutorial.net/tutorial-cara-instal-windows-10/) . Hanya dengan beberapa klik, proses instalasi sudah beres dan WA di laptop pun bisa langsung di gunakan.
 
 Nah, beberapa langkah yang perlu Anda lakukan adalah sebagai berikut.
 
@@ -79,7 +79,7 @@ Nah, beberapa langkah yang perlu Anda lakukan adalah sebagai berikut.
 7. Selanjutnya, masuk ke bagian menu dan pilih whatsapp web. Nah, disini Anda bisa langsung melakukan scan kode QR tersebut.
 8. Setelah proses scan kode selesai, kini WA di laptop Anda bisa langsung di gunakan.
 
-**Baca Juga :** [Cara Screenshoot Layar Laptop](https://34.126.127.69/cara-screenshot-di-laptop/).
+**Baca Juga :** [Cara Screenshoot Layar Laptop](https://besttutorial.net/cara-screenshot-di-laptop/).
 
 ## **Instal WA Di Laptop Melalui Whatsapp.Com**
 
@@ -118,7 +118,7 @@ Lalu, bagaimana langkah-langkah instal WA tanpa harus masuk dengan kode QR ini? 
 3. Sebagaimana ketika Anda pertama kali menginstal WA di smartphone, disini pun akan muncul tampilan selamat datang. Anda tinggal klik agree and continue kemudian akan masuk pada laman berikutnya.
 4. Kini proses instalasi Anda sebenarnya sudah selesai, namun perlu masuk terlebih dahulu untuk bisa menggunakannya. Jadi, bagi yang belum memiliki akun bisa mendaftarkan dengan nomor baru. Sedangkan yang sudah memiliki akun bisa memilih login.
 
-**Baca Juga :** [Aplikasi Cari Jodoh Paling Populer](https://34.126.127.69/aplikasi-cari-jodoh-terpopuler/)
+**Baca Juga :** [Aplikasi Cari Jodoh Paling Populer](https://besttutorial.net/aplikasi-cari-jodoh-terpopuler/)
 
 ## **Cara Instal WA Di Laptop Tanpa Emulator**
 

@@ -53,7 +53,7 @@ Berikut ini adalah fadhilah dari kandungan yang ada didalam doa rabithah:
 2. Dapat melembutkan hati seorng muslim yang tadinya keras maka akan menjadi lunak, yang suram tak bercahaya akan menjadi terang benderang.
 3. Melembutkan hati kita maksudnya adalah ikut merasakan dan bersimpati pada apa yang terjadi pada sesama makhluk Allah, suka membantu dan mudah memaafkan.
 4. Mempererat ukhuwah islamiyah diantara sesama muslim ataupun sesama makhluk ciptaan Allah. Apabila hati kita sudah terpaut dengan saudara seiman kita, maka tidaklah sulit untuk menjaga tali silaturahmi dan saling berbuat kebaikan.
-5. Doa rabithah merupakan doa pengikat hati, bukan dalam arti untuk [mencari jodoh](https://34.126.127.69/apa-itu-jodoh/) apalagi dianggap sebagai [doa mendapatkan jodoh](https://34.126.127.69/doa-mendapatkan-jodoh-yang-diinginkan/), tapi untuk menyambung rasa persaudaraan sesama muslim.
+5. Doa rabithah merupakan doa pengikat hati, bukan dalam arti untuk [mencari jodoh](https://besttutorial.net/apa-itu-jodoh/) apalagi dianggap sebagai [doa mendapatkan jodoh](https://besttutorial.net/doa-mendapatkan-jodoh-yang-diinginkan/), tapi untuk menyambung rasa persaudaraan sesama muslim.
 
 ## Hukum Membaca Do'a Rabithah
 

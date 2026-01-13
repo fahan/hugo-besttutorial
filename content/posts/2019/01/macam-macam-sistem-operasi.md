@@ -13,7 +13,7 @@ Seiring berkembangnya dunia teknologi, tidak heran jika keberadaan sistem operas
 
 Bahkan, dengan adanya sistem operasi, segala urusan yang berkaitan dunia digital pun semakin mudah.
 
-Sejauh ini, semenjak [sejarah sistem operasi](https://34.126.127.69/sejarah-sistem-operasi/) dibuat sampai sekarang sudah tersedia banyak sekali macam-macam sistem operasi yang bisa ditemukan, baik untuk komputer maupun smartphone.
+Sejauh ini, semenjak [sejarah sistem operasi](https://besttutorial.net/sejarah-sistem-operasi/) dibuat sampai sekarang sudah tersedia banyak sekali macam-macam sistem operasi yang bisa ditemukan, baik untuk komputer maupun smartphone.
 
 Secara garis besar, berdasarkan bentuknya, ada 4 sistem operasi yang beredar. Diantaranya adalah sistem operasi _stand alone_, sistem operasi jaringan, sistem operasi _Embedded_ dan sistem operasi _live_ CD.
 
@@ -23,7 +23,7 @@ Beberapa sistem operasi diatas memiliki karakteristik masing-masing. Sedangkan u
 
 Sistem Operasi Komputer
 
-Pengoperasian [komputer](https://34.126.127.69/pengertian-komputer/), jelas tidak bisa di pisahkan dari dukungan sistem operasi. Sejauh ini, ada banyak sistem operasi yang bisa digunakan sesuai kategori komputer maupun laptop yang di pilih, termasuk widows yang sangat populer.
+Pengoperasian [komputer](https://besttutorial.net/pengertian-komputer/), jelas tidak bisa di pisahkan dari dukungan sistem operasi. Sejauh ini, ada banyak sistem operasi yang bisa digunakan sesuai kategori komputer maupun laptop yang di pilih, termasuk widows yang sangat populer.
 
 Diantara macam-macam sistem operasi untuk komputer yang perlu Anda kenali adalah sebagai berikut.
 
@@ -113,7 +113,7 @@ pixabay.com
 
 </figure>
 
-Jika dibandingkan dengan windows maupun Mac OS, [Linux](https://34.126.127.69/sistem-operasi-linux-terbaik/) memang tidak lebih populer.
+Jika dibandingkan dengan windows maupun Mac OS, [Linux](https://besttutorial.net/sistem-operasi-linux-terbaik/) memang tidak lebih populer.
 
 Akan tetapi, tidak dapat di pungkiri juga bahwa penggunaannya pun sudah mendunia.
 

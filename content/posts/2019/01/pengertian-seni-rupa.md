@@ -284,9 +284,9 @@ Merupakan salah satu contoh seni yang mereflleksikan pengertian seni rupa dalam 
 
 ### **5\. Seni Kriya**
 
-Terakhir, ada juga [seni kriya](https://34.126.127.69/pengertian-seni-kriya/) yang dalam pembuatannya mengandalkan keterampilan tangan dengan bahan baku dari lingkungan sekitar.
+Terakhir, ada juga [seni kriya](https://besttutorial.net/pengertian-seni-kriya/) yang dalam pembuatannya mengandalkan keterampilan tangan dengan bahan baku dari lingkungan sekitar.
 
-Sebenarnya juga bisa disebut kerajinan namun masih terdapat perbedaannya, untuk memahami lebih jelas bacalah pembahasan mengenai [Kerajinan](https://34.126.127.69/pengertian-kerajinan/).
+Sebenarnya juga bisa disebut kerajinan namun masih terdapat perbedaannya, untuk memahami lebih jelas bacalah pembahasan mengenai [Kerajinan](https://besttutorial.net/pengertian-kerajinan/).
 
 Karya ini lebih cenderung pada jenis seni rupa terapan. Sedangkan beberapa macam pembagiannya adalah dalam bentuk kriya tekstil, kriya keramik, kriya kayu, dan lain sebagainya.
 

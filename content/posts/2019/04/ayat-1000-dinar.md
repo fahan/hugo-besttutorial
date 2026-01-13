@@ -95,7 +95,7 @@ Tidak sampai di sana, pengamalan ayat ini juga bisa membantu untuk meringankan b
 
 5. Membantu agar keinginan terkabul
 
-Manusia pastinya memiliki keinginan tertentu dalam hidupnya. Salah satunya mungkin seperti ingin berkunjung ke tanah suci untuk [****Umroh****](https://34.126.127.69/pengertian-umroh/) atau haji. Nah, di sini mengamalkan ayat tersebut bisa membantu mewujudkan keinginan Anda sedikit demi sedikit atau bahkan tanpa disangka.
+Manusia pastinya memiliki keinginan tertentu dalam hidupnya. Salah satunya mungkin seperti ingin berkunjung ke tanah suci untuk [****Umroh****](https://besttutorial.net/pengertian-umroh/) atau haji. Nah, di sini mengamalkan ayat tersebut bisa membantu mewujudkan keinginan Anda sedikit demi sedikit atau bahkan tanpa disangka.
 
 6. Membantu mendapatkan keadilan hukum
 
@@ -109,11 +109,11 @@ Dalam kehidupan bermasyarakat, tidak jarang seseorang memiliki hajat tertentu. B
 
 ## ****Manfaat Ayat Seribu Dinar Untuk Jodoh****
 
-Salah satu rezeki yang selalu dinantikan mereka yang sudah saatnya menikah adalah mendapatkan jodoh. Hal ini membuat pembahasan tentang [****apa itu jodoh****](https://34.126.127.69/apa-itu-jodoh/) dan bagaimana cara mendapatkannya banyak diminati berbagai kalangan.
+Salah satu rezeki yang selalu dinantikan mereka yang sudah saatnya menikah adalah mendapatkan jodoh. Hal ini membuat pembahasan tentang [****apa itu jodoh****](https://besttutorial.net/apa-itu-jodoh/) dan bagaimana cara mendapatkannya banyak diminati berbagai kalangan.
 
 Berkaitan dengan cara mendapatkan jodoh, perlu diketahui juga bahwa salah satu keutamaan ayat 1000 dinar adalah mendekatkan jodoh. Anda bisa mengamalkannya dengan hajat meminta jodoh. InsyaAllah pencarian jodoh pun akan semakin dipermudah.
 
-Pengamalan ayat tersebut untuk pencarian jodoh juga bisa didukung dengan beragam [****doa mendapatkan jodoh****](https://34.126.127.69/doa-mendapatkan-jodoh-yang-diinginkan/). Pastinya juga disertai usaha sekaligus meningkatkan ketakwaan sehingga segala urusan semakin dipermudah oleh Allah SWT.
+Pengamalan ayat tersebut untuk pencarian jodoh juga bisa didukung dengan beragam [****doa mendapatkan jodoh****](https://besttutorial.net/doa-mendapatkan-jodoh-yang-diinginkan/). Pastinya juga disertai usaha sekaligus meningkatkan ketakwaan sehingga segala urusan semakin dipermudah oleh Allah SWT.
 
  
 

@@ -17,7 +17,7 @@ slug: "sistem-operasi-windows"
 
 ## Apa Itu Windows ?
 
-Jika kamu dilontarkan dengan pertanyaan seperti itu pastinya kalian akan langsung menjawabnya dengan "Sebuah OS Komputer". Dilain sisi jika kamu benar-benar awam dengan [komputer](https://34.126.127.69/pengertian-komputer/) kamu pasti akan menjawab "Jendela-jendela".
+Jika kamu dilontarkan dengan pertanyaan seperti itu pastinya kalian akan langsung menjawabnya dengan "Sebuah OS Komputer". Dilain sisi jika kamu benar-benar awam dengan [komputer](https://besttutorial.net/pengertian-komputer/) kamu pasti akan menjawab "Jendela-jendela".
 
 Kedua jawaban tersebut tidak ada yang salah keduanya saling melengkapi, karena windows adalah Sebuah Sistem Operasi Komputer yang menjadi jendela untuk dunia digital.
 
@@ -35,7 +35,7 @@ nistsap.com | Perkembangan Sistem Operasi Windows
 
 </figure>
 
-Semenjak awal mula [sejarah sistem operasi](https://34.126.127.69/sejarah-sistem-operasi/) ada banyak versi sistem operasi windows yang telah dikeluarkan oleh Microsoft.
+Semenjak awal mula [sejarah sistem operasi](https://besttutorial.net/sejarah-sistem-operasi/) ada banyak versi sistem operasi windows yang telah dikeluarkan oleh Microsoft.
 
 _Windows Graphic Environment_ 1.0 yang diperkenalkan pada tanggal 10 November 1983 merupakan Windows versi pertama (Windows 1.0).
 
@@ -223,7 +223,7 @@ dimensidata.com | Windows Server
 
 </figure>
 
-Windows Server merupakan salah satu jenis produk Microsoft berupa Sistem Operasi yang dikhususkan untuk dijadikan Server dalam suatu [jaringan komputer](https://34.126.127.69/pengertian-jaringan-komputer/).
+Windows Server merupakan salah satu jenis produk Microsoft berupa Sistem Operasi yang dikhususkan untuk dijadikan Server dalam suatu [jaringan komputer](https://besttutorial.net/pengertian-jaringan-komputer/).
 
 Arsitektur Windows NT merupakan salah satu Sistem Operasi Server pertama yang dibuat oleh Microsoft yang memiliki kemampuan, fitur, dan pengoperasian yang sama dari sistem operasi server standar.
 

@@ -17,7 +17,7 @@ Dalam cinta dan berumah tangga, terdapat rambu-rambu yang harus kita taati untuk
 
 Untuk kamu pasangan yang baru menikah, tentunya akan banyak membutuhkan motivasi dan nasihat untuk menjalankan kehidupan setelah menikah.
 
-Berikut adalah [kata-kata](https://34.126.127.69/arti-barakallah/) pernikahan yang unik serta inspiratif dan bahkan bisa membuat kamu baper!
+Berikut adalah [kata-kata](https://besttutorial.net/arti-barakallah/) pernikahan yang unik serta inspiratif dan bahkan bisa membuat kamu baper!
 
 ## Kata-kata Pernikahan Yang Menyentuh Hati
 
@@ -25,7 +25,7 @@ Berikut adalah [kata-kata](https://34.126.127.69/arti-barakallah/) pernikahan ya
 
 Kata-kata Pernikahan sering digunakan dalam undangan pernikahan, hingga menjadi hiasan saat acara pernikahan tersebut berlangsung. Kata-kata pernikahan biasanya berisi tentang kata-kata yang  menyejukan dan menceritakan dua insan yang sudah ditakdirkan untuk hidup bersama dan dipertemukan dalam pernikahan mereka.
 
-Saling percaya kepada pasangan adalah kunci sukses dalam berumah tangga. Selain itu motivasi dari orang lain untuk diri sendiri agar tetap setia dan cinta terhadap pasangan adalah salah satu cara agar menjalin hubungan yang lebih serius dan selalu mengingat [janji suci](https://34.126.127.69/lagu-tentang-cinta/), yaitu pernikahan.
+Saling percaya kepada pasangan adalah kunci sukses dalam berumah tangga. Selain itu motivasi dari orang lain untuk diri sendiri agar tetap setia dan cinta terhadap pasangan adalah salah satu cara agar menjalin hubungan yang lebih serius dan selalu mengingat [janji suci](https://besttutorial.net/lagu-tentang-cinta/), yaitu pernikahan.
 
 Kata-kata pernikahan bisa menjadi motivasi untuk diri sendiri dan pasangan agar lebih percaya diri. Hingga timbul perasaan untuk saling setia dan meyakinkan untuk hidup berdua selamanya.
 
@@ -57,7 +57,7 @@ Seseorang akan merasakan jatuh cinta kepada orang lain tanpa harus melihat bahwa
 
 ****“Pertemuan adalah permulaan, tetap bersama adalah perkembangan, bekerjasama adalah keberhasilan”****
 
-Dalam sebuah hubungan hingga menuju [pada pernikahan](https://34.126.127.69/susunan-acara-pernikahan/), tentu semua ada prosesnya, dan proses tersebut akan selalu berkembang hingga akhir. Bekerjasama adalah cara yang sangat sederhana yang sangat ampuh untuk menuju kesuksesan kamu dan pasanganmu
+Dalam sebuah hubungan hingga menuju [pada pernikahan](https://besttutorial.net/susunan-acara-pernikahan/), tentu semua ada prosesnya, dan proses tersebut akan selalu berkembang hingga akhir. Bekerjasama adalah cara yang sangat sederhana yang sangat ampuh untuk menuju kesuksesan kamu dan pasanganmu
 
  
 

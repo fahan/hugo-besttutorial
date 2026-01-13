@@ -524,7 +524,7 @@ redtedart.com
 
 Mungkin bagi kamu koran akan terlihat jelek jika menjadi wallpaper dinding karena warnanya yang monoton.
 
-Berbeda dengan orang yang memiliki daya kreatifitas yang tinggi yang mampu memposisikan koran bekas kedalam sudut pandang yang indah ketika dijadikan bahan pemercantik ruangan seperti [hiasan rumah dari barang bekas](https://34.126.127.69/hiasan-rumah-dari-barang-bekas/).  
+Berbeda dengan orang yang memiliki daya kreatifitas yang tinggi yang mampu memposisikan koran bekas kedalam sudut pandang yang indah ketika dijadikan bahan pemercantik ruangan seperti [hiasan rumah dari barang bekas](https://besttutorial.net/hiasan-rumah-dari-barang-bekas/).  
 
 ### Tas
 

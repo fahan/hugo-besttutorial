@@ -38,7 +38,7 @@ Untuk bisa melakukan instalasi di windows XP, maka Anda perlu memenuhi syarat mi
 - **VGA minimal 128 MB**.
 - Sedangkan drive C, paling tidak **kapasitasnya lebih dari 30 GB** dengan minimumnya 10 GB.
 
-Berbeda dengan versi windows lainnya seperti [instalasi windows 8](https://34.126.127.69/cara-instal-windows-8/) dan [instalasi windows 10](https://34.126.127.69/tutorial-cara-instal-windows-10/) yang membutuhkan spesifikasi minimum yang lebih tinggi dibandingkan windows XP.
+Berbeda dengan versi windows lainnya seperti [instalasi windows 8](https://besttutorial.net/cara-instal-windows-8/) dan [instalasi windows 10](https://besttutorial.net/tutorial-cara-instal-windows-10/) yang membutuhkan spesifikasi minimum yang lebih tinggi dibandingkan windows XP.
 
 Begitu juga yang spesifikasi minimumnya hampir sama dengan windows xp.
 

@@ -7,7 +7,7 @@ coverImage: "memilih.jpg"
 slug: "pengertian-seni-rupa-2-dimensi"
 ---
 
-Dunia seni memang sangat identik dengan keindahan dan kebahagiaan. Karena itulah banyak yang mengaguminya. Salah satu jenis karya seni yang simple dan banyak di jumpai sejauh ini adalah [seni rupa](https://34.126.127.69/pengertian-seni-rupa/). Seni rupa tersebut, berdasarkan bentuknya adakalanya 2 dimensi dan tiga dimensi. Dalam hal ini mengenal pengertian seni rupa 2 dimensi cukup penting.  
+Dunia seni memang sangat identik dengan keindahan dan kebahagiaan. Karena itulah banyak yang mengaguminya. Salah satu jenis karya seni yang simple dan banyak di jumpai sejauh ini adalah [seni rupa](https://besttutorial.net/pengertian-seni-rupa/). Seni rupa tersebut, berdasarkan bentuknya adakalanya 2 dimensi dan tiga dimensi. Dalam hal ini mengenal pengertian seni rupa 2 dimensi cukup penting.  
 
 Seni rupa 2 dimensi ini sangat mudah di jumpai. Tidak hanya di pameran seni, namun juga di beberapa wilayah yang bahkan tidak ada event seninya sama sekali. Baik untuk jenis seni rupa dua dimensi yang murni maupun yang terapan. Hal ini menunjukkan bahwa ketertarikan masyarakat terhadap seni pun cukup besar.
 
@@ -17,7 +17,7 @@ Seni rupa 2 dimensi ini sangat mudah di jumpai. Tidak hanya di pameran seni, nam
 
 Berbicara lebih jauh tentang seni rupa, khususnya yang dua dimensi, sebagaimana namanya, seni rupa ini hanya dapat dinikmati sebagaimana karya dua dimensi serupa.
 
-Sedangkan pengertian seni rupa dua dimensi selebihnya adalah seni rupa yang di batasi oleh dua sisi saja. Dengan demikian, artinya seni rupa dua dimensi tidak memiliki ruang sebagaimana yang [tiga dimensi](https://34.126.127.69/pengertian-seni-rupa-3-dimensi/).
+Sedangkan pengertian seni rupa dua dimensi selebihnya adalah seni rupa yang di batasi oleh dua sisi saja. Dengan demikian, artinya seni rupa dua dimensi tidak memiliki ruang sebagaimana yang [tiga dimensi](https://besttutorial.net/pengertian-seni-rupa-3-dimensi/).
 
 Mengingat akan perbedaan mendasar dari bentuknya, tentu saja dalam pembuatannya seni rupa dua dimensi ini berbeda dari yang tiga dimensi.
 

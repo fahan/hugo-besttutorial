@@ -30,7 +30,7 @@ pixabay.com
 
 </figure>
 
-Istilah ini juga sering di sebut dengan _screen capture_. _Screenshot_ adalah gambar tampilan layar yang dipotret dari perangkat komputer ( _[Personal Computer](https://34.126.127.69/pengertian-komputer)_) atau laptop dan _smartphone_. 
+Istilah ini juga sering di sebut dengan _screen capture_. _Screenshot_ adalah gambar tampilan layar yang dipotret dari perangkat komputer ( _[Personal Computer](https://besttutorial.net/pengertian-komputer)_) atau laptop dan _smartphone_. 
 
 Beberapa orang berpendapat bahwa screenshot merupakan fungsi dari _print screen_, karena itulah _printscreen_ termasuk dalam salah satu cara screenshot di laptop.
 
@@ -70,14 +70,14 @@ Twitter
 
 Hasil _screenshot_ dapat kita simpan didalam _gallery_ saja atau juga bisa kita upload ke social media seperti Instagram, Facebook dan Twitter. 
 
-Masing-masing orang memiliki alasan tertentu untuk mengunggah gambar _screenshot_ ke media social yang ternyata memberikan manfaat dan [dampak internet](https://34.126.127.69/dampak-positif-dan-negatif-internet/) yang berbeda-beda.
+Masing-masing orang memiliki alasan tertentu untuk mengunggah gambar _screenshot_ ke media social yang ternyata memberikan manfaat dan [dampak internet](https://besttutorial.net/dampak-positif-dan-negatif-internet/) yang berbeda-beda.
 
 Dengan adanya berbagai cara _screenshot_ di laptop, sehingga menjadikan _screenshot_ memiliki bermacam-macam manfaat seperti :
 
 1. Pada era modern ini, banyak orang suka berbagi tentang cerita kehidupannya di social media, dengan adanya screenshot akan menjadi jalan alternatif bagi mereka untuk membagikan cerita pendek pada orang lain melalui social media. 
 2. Untuk meringkas informasi yang ingin disampaikan ke _social media_. Karena beberapa _social media_ seperti Twitter memiliki batas kata maksimal sehingga dengan mengunggah hasil _screenshoot_ dapat menyederhanakan informasi tanpa harus terpotong. 
 3. Sebagai sarana untuk memperjelas konten, sebagai blogger yang menulis tentang beberapa tulisan misalnya terkait dengan cara mudah menggunakan Microsoft Word, maka diperlukan hasil screenshoot untuk memperjelas tiap langkah yang dipaparkan pada tulisan sehingga pembaca lebih memahami dengan jelas.
-4. Bagi para publisher yang suka menulis tentang tutorial juga sangat bermanfaat semisalnya ketika [membuat bootable flasdisk](https://34.126.127.69/cara-membuat-bootable-flashdisk/) untuk keperluan instalasi Sistem Operasi atau pada saat membuat tutorial tentang [cara instalasi aplikasi Whatsapp](https://34.126.127.69/cara-instal-wa-di-laptop/) di Laptop.
+4. Bagi para publisher yang suka menulis tentang tutorial juga sangat bermanfaat semisalnya ketika [membuat bootable flasdisk](https://besttutorial.net/cara-membuat-bootable-flashdisk/) untuk keperluan instalasi Sistem Operasi atau pada saat membuat tutorial tentang [cara instalasi aplikasi Whatsapp](https://besttutorial.net/cara-instal-wa-di-laptop/) di Laptop.
 
 ## **Berbagai Cara Screenshot di Laptop**
 
@@ -204,7 +204,7 @@ Windows 7 | caracteristicas.co
 
 Pada windows 7 teman-teman dapat memilih dari beberapa cara untuk screenshot berikut langkah-langkah cara screenshot di laptop dengan OS windows 7:
 
-Baca Juga [Tutorial Cara Instal Windows 7](https://34.126.127.69/cara-instal-windows-7/).
+Baca Juga [Tutorial Cara Instal Windows 7](https://besttutorial.net/cara-instal-windows-7/).
 
 **1).    Menggunakan PrtSc**  
 Tekan tombol PrtSc yang terletak pada pojok kanan atas keyboard. Setelah gambar sudah dicopy ke clipboard, buka software image editing seperti Paint. setelah terbuka lalu pilih opsi Paste atau menggunakan kombinasi tombol CTRL + V.
@@ -258,7 +258,7 @@ Windows 10 | youtube.com
 
 Sepertti yang dilansir dari [Howtogeek](https://www.howtogeek.com/226280/how-to-take-screenshots-in-windows-10/), cara screenshot di laptop dengan Windows 10, teman-teman bisa memulainya dengan,
 
-Baca Juga [**Tutorial Cara Instal Windows 10**](https://34.126.127.69/tutorial-cara-instal-windows-10/).
+Baca Juga [**Tutorial Cara Instal Windows 10**](https://besttutorial.net/tutorial-cara-instal-windows-10/).
 
 \-> Klik '_Start_'  
 \-> menuju _All Apps_   

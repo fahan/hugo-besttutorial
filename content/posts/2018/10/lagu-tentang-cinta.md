@@ -13,7 +13,7 @@ coverImage: "lagu-tentang-cinta.jpg"
 slug: "lagu-tentang-cinta"
 ---
 
-Apakah kamu sedang jatuh [cinta](https://34.126.127.69/apa-itu-cinta) ?, jika kamu nyasar kehalaman ini berarti memang iya kalau kamu sedang dilanda kasmaran, karena kamu mencari lagu tentang cinta untuk  mengekspresikan perasaanmu saat ini.
+Apakah kamu sedang jatuh [cinta](https://besttutorial.net/apa-itu-cinta) ?, jika kamu nyasar kehalaman ini berarti memang iya kalau kamu sedang dilanda kasmaran, karena kamu mencari lagu tentang cinta untuk  mengekspresikan perasaanmu saat ini.
 
 Ada beberapa kemungkinan yang terjadi jika kamu mengalami kasmaran diantaranya mau menghibur pasanganmu, mau menjadi romantis untuk pasanganmu, atau mungkin mau mengungkapkan cinta pada gebetan.
 
@@ -31,7 +31,7 @@ Ini merupakan konsep yang cukup bagus untuk digunakan bahkan untuk melawar seora
 
 Bayangkanlah kamu menyanyikan "**lagumu**" sendiri untuk wanita yang kau cintai diiringi dengan instrumen musik yang begitu indah.
 
-Dengan catatan kamu harus sudah mempunyai target wanita yang mau dinyanyikan lagu ini loh, entah itu gebetan, pacar atau istri. Namun jika belum memiliki satupun alias jomlo kamu bisa mencarinya menggunakan [aplikasi cari jodoh](https://34.126.127.69/aplikasi-cari-jodoh-terpopuler/) yang bisa kamu lihat daftarnya dalam web ini.
+Dengan catatan kamu harus sudah mempunyai target wanita yang mau dinyanyikan lagu ini loh, entah itu gebetan, pacar atau istri. Namun jika belum memiliki satupun alias jomlo kamu bisa mencarinya menggunakan [aplikasi cari jodoh](https://besttutorial.net/aplikasi-cari-jodoh-terpopuler/) yang bisa kamu lihat daftarnya dalam web ini.
 
 Nah kamu bisa menggunakan rekomendasi lagu tentang cinta dalam artikel ini untuk membangun momen romantismu.
 

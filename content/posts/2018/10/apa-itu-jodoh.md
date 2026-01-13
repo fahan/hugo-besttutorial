@@ -118,7 +118,7 @@ Ayat di atas, menjelaskan bahwa wanita yang keji akan mendapatkan laki-laki yang
 
 Setiap orang pastinya memiliki kriteria standar untuk memilih seorang pasangan. Mayoritas orang berpatokan pada kriteria fisik dan materi yang dimiliki orang tersebut, tanpa memandang bagaimana akhlak dan agamanya.
 
-hSeperti yang orang jaman sekarang lakukan dalam hal cari jodoh dengan menggunakan [aplikasi cari jodoh](https://34.126.127.69/aplikasi-cari-jodoh-terpopuler/) yang hanya memandang seseorang dari kriteria fisiknya saja. Namun tidak juga harus menutup diri dari perkembangan teknologi semacam itu, cuma harus lebih bijaksana dan selektif dalam menggunakan [aplikasi pencarian jodoh](https://34.126.127.69/aplikasi-cari-jodoh-terpopuler/).
+hSeperti yang orang jaman sekarang lakukan dalam hal cari jodoh dengan menggunakan [aplikasi cari jodoh](https://besttutorial.net/aplikasi-cari-jodoh-terpopuler/) yang hanya memandang seseorang dari kriteria fisiknya saja. Namun tidak juga harus menutup diri dari perkembangan teknologi semacam itu, cuma harus lebih bijaksana dan selektif dalam menggunakan [aplikasi pencarian jodoh](https://besttutorial.net/aplikasi-cari-jodoh-terpopuler/).
 
 Jadi alangkah lebih baiknya ketika memilih seorang pasangan atau jodoh usahakan memiliki 5 kriteria dibawah ini.
 

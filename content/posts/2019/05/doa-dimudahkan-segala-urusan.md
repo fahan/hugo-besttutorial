@@ -61,7 +61,7 @@ Beberapa doa yang sudah disebutkan di atas bisa menjadi pegangan Anda untuk mend
 
 ## ****Doa Dimudahkan Segala Urusan Kaitannya Dengan Rezeki****
 
-Di dunia ini, urusan yang tidak bisa disangkal lagi tentu saja adalah urusan yang berkaitan dengan rezeki. Oleh sebab itu tidak heran jika ada banyak [****doa pembuka rezeki****](https://34.126.127.69/doa-pembuka-rezeki/) yang dijumpai banyak diamalkan. Yang namanya rezeki memang tidak bisa lepas dari kehidupan setiap orang.
+Di dunia ini, urusan yang tidak bisa disangkal lagi tentu saja adalah urusan yang berkaitan dengan rezeki. Oleh sebab itu tidak heran jika ada banyak [****doa pembuka rezeki****](https://besttutorial.net/doa-pembuka-rezeki/) yang dijumpai banyak diamalkan. Yang namanya rezeki memang tidak bisa lepas dari kehidupan setiap orang.
 
 Baik doa mendapatkan rezeki tak terduga maupun doa untuk mendapatkan rezeki yang sudah ditentukan harus senantiasa dipanjatkan. Hal ini dalam rangka semakin mendekatkan rezeki dalam kehidupan Anda. Termasuk juga dalam rangka menyambungkan batin dengan sang pencipta.
 
@@ -113,7 +113,7 @@ Jika ingin lebih spesifik, maka dlomir muanas yang terdapat dalam doa tersebut b
 
 - Doa segera dipertemukan dengan jodoh
 
-Doa kali ini bisa dikatakan juga sebagai sebuah [****doa minta jodoh****](https://34.126.127.69/doa-mendapatkan-jodoh-yang-diinginkan/) dengan bahasa yang halus. Anda bisa memanjatkannya ketika sudah sangat mendambakan kedekatan jodoh tersebut sehingga Allah bisa segera mengabulkan keinginan untuk menikah.
+Doa kali ini bisa dikatakan juga sebagai sebuah [****doa minta jodoh****](https://besttutorial.net/doa-mendapatkan-jodoh-yang-diinginkan/) dengan bahasa yang halus. Anda bisa memanjatkannya ketika sudah sangat mendambakan kedekatan jodoh tersebut sehingga Allah bisa segera mengabulkan keinginan untuk menikah.
 
 \[bctt tweet="Wa Zakariyya idz naadaa robbahuu robbii laa tadzarnii fii fardan wa antaa khoiru al-waaritsiina" via="no"\]
 
@@ -143,7 +143,7 @@ Ada satu doa untuk mempermudah urusan pekerjaan yang populer dan banyak diamalka
 
 Artinya : Ya Allah bukakanlah atas kami pintu-pintu kebaikan, pintu-pintu berkah, pintu-pintu nikmat, pintu-pintu kekuatan, pintu-pintu kesehatan, pintu-pintu keselamatan dan pintu-pintu surga. Ya Rabbi, berikan rahmat pada kami dari sisi Egkau dan sempurnakan untuk kami petunjuk yang lurus pada urusan kami.
 
-Doa mujarab ini bisa diamalkan dalam berbagai hal yang berkaitan dengan pekerjaan. Baik dibaca sebagai **[doa sebelum bekerja](https://34.126.127.69/doa-sebelum-bekerja/)**, maupun doa untuk mendapatkan pekerjaan yang layak dan lebih baik. Tentu saja termasuk kategori mendapatkan penghasilan yang berkah dari Allah.
+Doa mujarab ini bisa diamalkan dalam berbagai hal yang berkaitan dengan pekerjaan. Baik dibaca sebagai **[doa sebelum bekerja](https://besttutorial.net/doa-sebelum-bekerja/)**, maupun doa untuk mendapatkan pekerjaan yang layak dan lebih baik. Tentu saja termasuk kategori mendapatkan penghasilan yang berkah dari Allah.
 
 ## ****Manfaat Mengamalkan Doa Untuk Mempermudah Urusan****
 

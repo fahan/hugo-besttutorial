@@ -15,7 +15,7 @@ Untuk bisa melakukan video call sebagaimana di sebutkan, disini ada beberapa lan
 
 Tidak dapat di pungkiri bahwa saat ini WA, menjadi salah satu aplikasi yang sangat populer dalam berbagai hal. Khususnya jika berbicara mengenai sosial media yang menyediakan enkripsi end-to-end. Mengingat akan hal tersebut, maka tidak heran jika WA menjadi salah satu yang sangat di minati. Di tambah lagi dengan akses dan penggunaan yang sangat mudah.
 
-Selain itu pengguna WA pun sangat luas sehingga semakin mudah lagi Anda berkirim pesan maupun melakukan panggilan dengan sesama rekan apa lagi wa juga dapat digunakan di PC dengan [cara instal WA](https://34.126.127.69/cara-instal-wa-di-laptop/) di PC dengan benar. Selanjutnya, berbicara mengenai panggilan, aplikasi ini pun menawarkan fitur video call yang menarik. Tentunya dengan berbagai kelebihan yang di miliki pula. Namun, sebelumnya Anda perlu tahu  daftar cara video call menggunakan Whatsapp di bawah ini.
+Selain itu pengguna WA pun sangat luas sehingga semakin mudah lagi Anda berkirim pesan maupun melakukan panggilan dengan sesama rekan apa lagi wa juga dapat digunakan di PC dengan [cara instal WA](https://besttutorial.net/cara-instal-wa-di-laptop/) di PC dengan benar. Selanjutnya, berbicara mengenai panggilan, aplikasi ini pun menawarkan fitur video call yang menarik. Tentunya dengan berbagai kelebihan yang di miliki pula. Namun, sebelumnya Anda perlu tahu  daftar cara video call menggunakan Whatsapp di bawah ini.
 
 1. ### Pastikan Anda Memiliki Akun
     

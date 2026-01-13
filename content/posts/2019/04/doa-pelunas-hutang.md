@@ -17,7 +17,7 @@ Tujuan dari membaca doa hutang lunas sekejab adalah agar Allah memberikan solus
 
 \[caption id="attachment\_538" align="aligncenter" width="800"\]![doa mendapatkan jodoh yang diinginkan](/images/alquran.jpg) pixabay.com\[/caption\]
 
-Di setiap masalah, Islam memberikan ajaran berupa doa tersendiri. Sehingga, umat muslim harus mempelajari semua doa yang ada. Termasuk doa agar hutang cepat lunas. Salah satu sumber doa untuk melunasi hutang adalah sumber dari Alquran seperti [****doa agar dagangan laris****](https://34.126.127.69/doa-agar-dagangan-laris/).
+Di setiap masalah, Islam memberikan ajaran berupa doa tersendiri. Sehingga, umat muslim harus mempelajari semua doa yang ada. Termasuk doa agar hutang cepat lunas. Salah satu sumber doa untuk melunasi hutang adalah sumber dari Alquran seperti [****doa agar dagangan laris****](https://besttutorial.net/doa-agar-dagangan-laris/).
 
 Membaca ****doa pelunas hutang**** dari Alquran sangatlah penting. Karena Alquran sendiri menjadi sumber ajaran pertama dan utama dalam syari’at Islam. Maka dari itu, sangat penting untuk mengetahui doanya. Adapun surat yang mengandung doa ini adalah Ali Imron ayat 26.
 
@@ -41,7 +41,7 @@ Misalnya dengan ungkapan bahwa Allah dapat memberikan kerajaan kepada siapapun y
 
 Sementara pada ayat yang berikutnya diterangkan mengenai Allah akan memberikan rizki kepada siapapun hamba yang dikehendaki. Bahkan, rizki dalam jumlah yang tak terbatas. Hal ini sesuai dengan quote, “Hanya Allah tempatmu meminta dan memohon segala sesuatu”.
 
-Pembacaan doa agar hutang segera lunas ini harus dilakukan dengan baik dan sungguh-sungguh. Sebagaimana pada saat Anda melakukan [****sholat hajat jodoh****](https://34.126.127.69/sholat-hajat-jodoh/). Usahakan disertai dengan keimanan kuat dan rajin mengamalkan sholat sunnah.
+Pembacaan doa agar hutang segera lunas ini harus dilakukan dengan baik dan sungguh-sungguh. Sebagaimana pada saat Anda melakukan [****sholat hajat jodoh****](https://besttutorial.net/sholat-hajat-jodoh/). Usahakan disertai dengan keimanan kuat dan rajin mengamalkan sholat sunnah.
 
  
 
@@ -133,7 +133,7 @@ Beberapa tata cara membaca doa di atas harus dilakukan dengan runtut dan penuh k
 
 Selain memanjatkan doa doa pelunas hutang di atas, Anda juga perlu melakukan berbagai amalan penting. Dengan beberapa amalan tersebut, maka proses pelunasan hutang akan berlangsung dengan cepat dan mudah karena pertolongan Allah.
 
-Berikut ini adalah beberapa amalan melunasi hutang segunung yang bisa dilakukan dengan istiqomah. Sebagaimana amalan yang mengiringi [****doa minta jodoh****](https://34.126.127.69/doa-mendapatkan-jodoh-yang-diinginkan/).
+Berikut ini adalah beberapa amalan melunasi hutang segunung yang bisa dilakukan dengan istiqomah. Sebagaimana amalan yang mengiringi [****doa minta jodoh****](https://besttutorial.net/doa-mendapatkan-jodoh-yang-diinginkan/).
 
 1. Memperbanyak Bacaan Istighfar
 

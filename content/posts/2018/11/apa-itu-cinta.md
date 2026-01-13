@@ -186,7 +186,7 @@ Lalu darimana kita bisa mengetahui apa yang kita sukai atau yang kita rasakan it
 
 Ketika kita jatuh cinta pasti timbul sebuah rasa kagum dan tertarik pada objek yang kita cintai itu. Entah hal itu berkaitan dengan fisik, materi, sifat, ataupun hal yang berkaitan pada objek tersebut yang dilihat.
 
-Ketertarikan dan kekaguman antara orang satu dan yang lainya berbeda-beda. Karena pada dasarnya cara pandang seseorang juga berbeda-beda. Hal ini berkaitan dengan bagaimana orang [mendapatkan jodoh seperti yang dia inginkan.](https://34.126.127.69/doa-mendapatkan-jodoh-yang-diinginkan/)
+Ketertarikan dan kekaguman antara orang satu dan yang lainya berbeda-beda. Karena pada dasarnya cara pandang seseorang juga berbeda-beda. Hal ini berkaitan dengan bagaimana orang [mendapatkan jodoh seperti yang dia inginkan.](https://besttutorial.net/doa-mendapatkan-jodoh-yang-diinginkan/)
 
 ### 2. Adanya rasa ingin tahu
 
@@ -226,7 +226,7 @@ pixabay.com
 
 Ketika apa yang kita alami sesuai dengan ciri-ciri jatuh cinta, maka dalam diri kita menginginkan adanya suatu timbal balik dari seseorang yang kita cintai. Hal inilah yang mendorong adanya suatu hubungan.
 
-Namun komponen utama pembentuk cinta adalah orang yang mencintai dan dicintai. Bagi kalian yang beum menemukan orang yang kalian cintai bisa kalian temukan melalui berbagai cara seperti menggunakan [aplikasi cari jodoh](https://34.126.127.69/aplikasi-cari-jodoh-terpopuler/).
+Namun komponen utama pembentuk cinta adalah orang yang mencintai dan dicintai. Bagi kalian yang beum menemukan orang yang kalian cintai bisa kalian temukan melalui berbagai cara seperti menggunakan [aplikasi cari jodoh](https://besttutorial.net/aplikasi-cari-jodoh-terpopuler/).
 
 Sehingga kamu bisa membentuk komponen cinta yang sesungguhnya.
 
@@ -253,7 +253,7 @@ komponen pembentuk cinta
 
 INTIMASI
 
-Intimasi berkaitan dengan sebuah hubungan yang dekat, terkait dan terikat, yang cenderung lebih memberikan perhatian dan rasa kagum terhadap orang yang dikasihi. Cinta dalam bentuk ini sama proposinya terhadap cinta pada pasangan atau [jodoh](https://34.126.127.69/apa-itu-jodoh/) (hubungan romantis), sahabat, anak. Intimasi sendiri akan tercipta ketika seseorang memandang secara responsif, sehingga adanya perhatian yang diberikan, kemudian bereaksi secara suportif.
+Intimasi berkaitan dengan sebuah hubungan yang dekat, terkait dan terikat, yang cenderung lebih memberikan perhatian dan rasa kagum terhadap orang yang dikasihi. Cinta dalam bentuk ini sama proposinya terhadap cinta pada pasangan atau [jodoh](https://besttutorial.net/apa-itu-jodoh/) (hubungan romantis), sahabat, anak. Intimasi sendiri akan tercipta ketika seseorang memandang secara responsif, sehingga adanya perhatian yang diberikan, kemudian bereaksi secara suportif.
 
 HASRAT
 
@@ -289,7 +289,7 @@ Berbagai reaksi – reaksi yang ditimbulkan oleh adanya cinta, ternyata ketika k
 
 Berdasarkan penelitian saat kita merasakan jatuh cinta disitu timbul adanya zat pada otak yaitu terjadi peningkatan kadar neurotransmitter dopamine yang membawakan zat kenikmatan pada diri kita.
 
-Dimana saat orang jatuh cinta dia akan sering mendengarkan [lagu-lagu tentang cinta](https://34.126.127.69/lagu-tentang-cinta/) karena dia sedang kasmaran.
+Dimana saat orang jatuh cinta dia akan sering mendengarkan [lagu-lagu tentang cinta](https://besttutorial.net/lagu-tentang-cinta/) karena dia sedang kasmaran.
 
 **2. Mengurangi rasa depresi**
 

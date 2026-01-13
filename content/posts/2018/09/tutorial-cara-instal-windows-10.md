@@ -24,15 +24,15 @@ Kamu cukup ikuti aja tutorialnya disini sampai selesai.
 
 Tutorial ini menjelaskan tentang cara instal windows 10, bagi kamu yang ingin menginstal OS lain bisa baca tutorial berikut,
 
-- [Instal Windows XP](https://34.126.127.69/cara-instal-windows-xp/)
-- [Instal Windows 7](https://34.126.127.69/cara-instal-windows-7/)
-- [Instal Windows 8](https://34.126.127.69/cara-instal-windows-8/)
+- [Instal Windows XP](https://besttutorial.net/cara-instal-windows-xp/)
+- [Instal Windows 7](https://besttutorial.net/cara-instal-windows-7/)
+- [Instal Windows 8](https://besttutorial.net/cara-instal-windows-8/)
 
 Perlu kamu ketahui, dalam melakukan instalasi sistem operasi terdapat empat metode instalasi yang wajib kamu ketahui yaitu _Fresh instalasi, Upgrade, Multiboot/dualboot,_ dan _Virtual Instalasi._ Keempat metode tersebut bisa digunakan sebagai cara instal windows 10.
 
 Dalam tutorial ini tidak akan menjelaskan seluruh keempat metode instalasi terssebut, hanya metode _fresh instalasi_ yang akan dipakai.
 
-Untuk penjelasan lebih mendetail tentang metode instalasi, kamu bisa baca pada artikel **_[Metode Instalasi Sistem Operasi](https://34.126.127.69/metode-instalasi-sistem-operasi)_**.
+Untuk penjelasan lebih mendetail tentang metode instalasi, kamu bisa baca pada artikel **_[Metode Instalasi Sistem Operasi](https://besttutorial.net/metode-instalasi-sistem-operasi)_**.
 
 <figure>
 
@@ -86,7 +86,7 @@ Ada lima cara yang dapat dilakukan untuk mengidentifikasi laptop, yaitu :
 4. Melalui Windows Properties
 5. Menggunakan Aplikasi pihak ketiga.
 
-Kelima cara diatas bisa kamu pelajari secara detail pada artikel [cara melihat spesifikasi laptop atau komputer](https://34.126.127.69/cara-melihat-spesifikasi-laptop) dan juga kamu harus memahami [cara screenshoot layar di laptop](https://34.126.127.69/cara-screenshot-di-laptop/) untuk menyimpan gambar spesifikasi tentang laptopmu.
+Kelima cara diatas bisa kamu pelajari secara detail pada artikel [cara melihat spesifikasi laptop atau komputer](https://besttutorial.net/cara-melihat-spesifikasi-laptop) dan juga kamu harus memahami [cara screenshoot layar di laptop](https://besttutorial.net/cara-screenshot-di-laptop/) untuk menyimpan gambar spesifikasi tentang laptopmu.
 
 <figure>
 
@@ -230,7 +230,7 @@ pixabay.com | Flashdisk
 
 </figure>
 
-Banyak cara untuk membuat _bootable flashdisk_ yang tutorial lebih jelasnya bisa kamu baca di artikel [**membuat _bootable flashdisk_**](https://34.126.127.69/cara-membuat-bootable-flashdisk/) untuk bisa mengetahui cara instal windows 10 dengan flashdisk.
+Banyak cara untuk membuat _bootable flashdisk_ yang tutorial lebih jelasnya bisa kamu baca di artikel [**membuat _bootable flashdisk_**](https://besttutorial.net/cara-membuat-bootable-flashdisk/) untuk bisa mengetahui cara instal windows 10 dengan flashdisk.
 
 Berikut ini cara cepat membuat _bootable flashdisk_ yang singkat.
 

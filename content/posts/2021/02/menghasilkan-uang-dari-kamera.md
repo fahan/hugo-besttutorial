@@ -13,7 +13,7 @@ slug: "menghasilkan-uang-dari-kamera"
 
 Masa pandemi Covid 2019 membawa dampak bagi banyak pihak. Kalian setuju, kan? Mungkin kalian yang membaca ini juga sedang mengalami perubahan besar dalam hal pekerjaan, pendidikan, atau bidang lain yang sedang dijalani. Hampir sebagian besar masyarakat kini menjadi lebih banyak menghabiskan waktu di rumah saja selama pandemi.
 
-Meski di rumah saja, sebaiknya kita tidak melewatinya dengan sia-sia. Karena tak terasa waktu berjalan sangat cepat. Sebaiknya kita tetap bisa memanfaatkan waktu yang lebih banyak di rumah ini dengan berbagai kegiatan positif, bahkan menghasilkan uang atau manfaat. Seperti yang tertera di judul, kami akan membagikan tips [menghasilkan uang](https://34.126.127.69/pengertian-bisnis-menurut-ahli/) dari kamera. Mungkin selama ini di rumah kalian ada kamera yang menganggur, mana tahu kamera tersebut kini dapat menghasilkan nilai lebih. Mari kita simak tipsnya…
+Meski di rumah saja, sebaiknya kita tidak melewatinya dengan sia-sia. Karena tak terasa waktu berjalan sangat cepat. Sebaiknya kita tetap bisa memanfaatkan waktu yang lebih banyak di rumah ini dengan berbagai kegiatan positif, bahkan menghasilkan uang atau manfaat. Seperti yang tertera di judul, kami akan membagikan tips [menghasilkan uang](https://besttutorial.net/pengertian-bisnis-menurut-ahli/) dari kamera. Mungkin selama ini di rumah kalian ada kamera yang menganggur, mana tahu kamera tersebut kini dapat menghasilkan nilai lebih. Mari kita simak tipsnya…
 
  
 
@@ -53,7 +53,7 @@ Maka dari itu, jika kalian tertarik membuka jasa ini, kalian harus sangat hati-h
 
 Ini bisa dibilang cara yang kuno untuk menghasilkan uang dari kamera. Akan tetapi tetap masih bisa dijadikan usaha untuk mencari keuntungan. Kalian bisa memanfaatkan kamera yang sudah tak terpakai, atau menjadi reseller. Keuntungannya bisa diputar untuk membeli kamera lain untuk dijual kembali.
 
-Di mana promosinya? [Tak perlu khawatir](https://34.126.127.69/doa-dimudahkan-segala-urusan/), saat ini banyak marketplace yang menyediakan platform jual beli barang baru maupun bekas, dengan jangkauan lebih luas dan transaksi lebih aman.
+Di mana promosinya? [Tak perlu khawatir](https://besttutorial.net/doa-dimudahkan-segala-urusan/), saat ini banyak marketplace yang menyediakan platform jual beli barang baru maupun bekas, dengan jangkauan lebih luas dan transaksi lebih aman.
 
 6. ****Mengunggah foto di microstock****
 

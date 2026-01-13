@@ -71,7 +71,7 @@ Walaupun sebenarnya pertanyaan tersebut sudah dijawab oleh Hukum Newton, dari Hu
 
 Secara bahasa Dinamika Partikel bisa diartikan sebagai partikel/benda yang bergerak, yang dimana gerakkan tersebut dipengaruhi oleh yang namanya gaya.
 
-Karena Hukum Newton termasuk dalam teori Dinamika Partikel, maka bisa dikatakan bahwa Hukum Newton adalah salah satu jenis gaya dalam Dinamika Partikel yaitu Gaya Gerak. Jadi kamu bisa memahami lebih dulu [tentang Hukum Newton](https://34.126.127.69/hukum-newton) untuk mempelajari teori Dinamika partikel.
+Karena Hukum Newton termasuk dalam teori Dinamika Partikel, maka bisa dikatakan bahwa Hukum Newton adalah salah satu jenis gaya dalam Dinamika Partikel yaitu Gaya Gerak. Jadi kamu bisa memahami lebih dulu [tentang Hukum Newton](https://besttutorial.net/hukum-newton) untuk mempelajari teori Dinamika partikel.
 
 ### Hukum I Newton
 
@@ -138,7 +138,7 @@ pixabay.com
 
 Ada berbagai macam gaya yang bekerja dalam Teori Dinamika Partikel dalam hal gerak melingkar dan gerak lurus.
 
-Gaya-gaya tersebut perlu ditinjau lebih dalam lagi untuk bisa menyelesaikan suatu permasalahan lebih detail lagi. Untuk itu pahamilah dulu [**pengertian gaya**](https://34.126.127.69/pengertian-gaya-dalam-ilmu-fisika/) lebih dalam lagi.
+Gaya-gaya tersebut perlu ditinjau lebih dalam lagi untuk bisa menyelesaikan suatu permasalahan lebih detail lagi. Untuk itu pahamilah dulu [**pengertian gaya**](https://besttutorial.net/pengertian-gaya-dalam-ilmu-fisika/) lebih dalam lagi.
 
 Untuk memahami macam-macam gaya bisa dilihat pada video berikut,
 

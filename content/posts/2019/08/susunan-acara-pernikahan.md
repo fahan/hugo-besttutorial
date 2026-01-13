@@ -34,9 +34,9 @@ Well, bagi kamu yang mau nikah sudah seharusnya kamu tahu apa itu pernikahan, ka
 
 Namun, kali ini akan dijelaskan sedikit lebit detil.
 
-Makhluk hidup diciptakan secara berpasang-pasangan oleh Allah SWT, termasuk manusia yang notabene tidak bisa hidup sendiri atau makhluk sosial dan juga sudah ditentukan [jodohnya](https://34.126.127.69/apa-itu-jodoh/)  oleh Allah.
+Makhluk hidup diciptakan secara berpasang-pasangan oleh Allah SWT, termasuk manusia yang notabene tidak bisa hidup sendiri atau makhluk sosial dan juga sudah ditentukan [jodohnya](https://besttutorial.net/apa-itu-jodoh/)  oleh Allah.
 
-(kalau belum dapat jodoh bisa kepoin artikel [doa mendapatkan jodoh](https://34.126.127.69/doa-mendapatkan-jodoh-yang-diinginkan/) biar segera dapat jodoh XD).
+(kalau belum dapat jodoh bisa kepoin artikel [doa mendapatkan jodoh](https://besttutorial.net/doa-mendapatkan-jodoh-yang-diinginkan/) biar segera dapat jodoh XD).
 
 Karena itulah ada yang namanya pernikahan yang bertujuan untuk mengikat jalinan cinta dari sepasang manusia yang berbeda jenis kelamin tentunya.
 
@@ -46,7 +46,7 @@ Acara yang dipenuhi dengan ikatan dan janji suci ini memiliki tata cara dan pros
 
 Ijab dan Qobul merupakan acara inti dari suatu pernikahan, dilain itu ada deretan acara lainnya untuk menyempurnakan acara tersebut dalam mempersiapkan langkah ke jenjang suci ini.
 
-Kamu perlu menyiapkan diri dari segi mental dan fisik serta [wawasan pernikahan](https://34.126.127.69/hadits-tentang-pernikahan/) untuk mengurusi segala persiapan yang harus dipenuhi untuk melangsungkan pernikahan.
+Kamu perlu menyiapkan diri dari segi mental dan fisik serta [wawasan pernikahan](https://besttutorial.net/hadits-tentang-pernikahan/) untuk mengurusi segala persiapan yang harus dipenuhi untuk melangsungkan pernikahan.
 
 Jika tidak ingin kesusahan dalam mengurusi seluruh persiapan acara pernikahan kamu bisa mendelegasikan seluruh tugas tersebut kepada WO _(wedding organizer)_ jika tidak mengeluarkan banyak biaya untuk WO kamu bisa meminta bantuan keluarga besar sendiri untuk mengurusnya.
 

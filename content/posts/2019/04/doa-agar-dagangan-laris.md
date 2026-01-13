@@ -35,7 +35,7 @@ __“Allaahumma yaa ghoniyyu, yaa hamiidu yaa mubdi’uu ya mu’iiidu yaa rahii
 
 Artinya: __Wahai Allah yang menjadi suatu Dzat Maha Kaya, wahai Dzat yang Maha Terpuji dan wahai Dzat yang Maha Memulai semuanya, wahai Dzat Terbaik yang Mengembalikan dan wahai pula Dzat yang senantiasa Mencintai. Cukupkan kepada Kami dengan semua kehalalan Mu dari semua KeharamanMu. Dan cukupkan kepada Kami segenap anugerahMu dari apapun selain Engkau. Dan Semoga Allah senantiasa memberikan limpahan Rahmat dan salam atas Nabi Muhammad, keluarga dan sahabatnya.__
 
-Secara sekilas, doa ini mirip dengan [****doa pelunas hutang****](https://34.126.127.69/doa-pelunas-hutang/), hanya saja lafaznya lebih sedikit. Inti dari doa ini adalah menisbatkan semua hal yang ada di dunia ini kepada Allah semata. Sehingga, masalah kecukupan rizki dan sebagainya juga merupakan kuasa Allah untuk mengatur.
+Secara sekilas, doa ini mirip dengan [****doa pelunas hutang****](https://besttutorial.net/doa-pelunas-hutang/), hanya saja lafaznya lebih sedikit. Inti dari doa ini adalah menisbatkan semua hal yang ada di dunia ini kepada Allah semata. Sehingga, masalah kecukupan rizki dan sebagainya juga merupakan kuasa Allah untuk mengatur.
 
 Poin utama dari doa ini adalah untuk memohon diberikan kecukupan dalam kehidupan ini. Termasuk di dalam hal berdagang. Sehingga, perdagangan yang dilakukan akan membawa kecukupan kepada diri sendiri, keluarga dan orang sekitar.
 
@@ -79,7 +79,7 @@ Sebelum bacaan Al-Fatihah, membaca B__ismillahirrohmaanirrahiim, ila hadroti Nab
 
 ## ****Tata Cara Membaca Doa Agar Dagangan Laris****  
 
-Islam sangat memperhatikan tata cara melaksanakan suatu ibadah tertentu. Sebagaimana saat melaksanakan [****sholat hajat jodoh****](https://34.126.127.69/sholat-hajat-jodoh/), ada tata cara tersendiri ketika membaca ritual doa supaya dagangan menjadi laris. Tentunya dengan ketentuan menjalankan dagangan dengan jujur.
+Islam sangat memperhatikan tata cara melaksanakan suatu ibadah tertentu. Sebagaimana saat melaksanakan [****sholat hajat jodoh****](https://besttutorial.net/sholat-hajat-jodoh/), ada tata cara tersendiri ketika membaca ritual doa supaya dagangan menjadi laris. Tentunya dengan ketentuan menjalankan dagangan dengan jujur.
 
 Hal ini sesuai dengan ajaran Nabi yang mengutamakan proses ibadah dengan benar sesuai dengan tuntunan syariat. Karena Nabi adalah utusan Allah dalam mengajarkan agamaNya, maka umat Islam harus meneladani Nabi. Karena itu, berikut adalah tata cara berdoanya yang benar.
 
@@ -121,6 +121,6 @@ Yang dimaksud dengan ya Wahab di atas merupakan pujian kepada Allah bahwa Dia ad
 
 Di samping itu, dzikir ya Lathif maknanya adalah Maha Lembut. Oleh karena itu, kombinasi keduanya merupakan ayat untuk jualan laris yang mujarab dalam melancarkan proses perdagangan.
 
-Sehingga, bisa dibilang ini adalah dzikir penarik pembeli. Jual beli memang banyak disebut dalam Alquran, sebagaimana bahasan mengenai [****ayat Alquran tentang jodoh****](https://34.126.127.69/ayat-alquran-tentang-jodoh/). Oleh karena itu, jual beli harus dilakukan dengan baik dan jujur agar mendapatkan keberkahan tersendiri.
+Sehingga, bisa dibilang ini adalah dzikir penarik pembeli. Jual beli memang banyak disebut dalam Alquran, sebagaimana bahasan mengenai [****ayat Alquran tentang jodoh****](https://besttutorial.net/ayat-alquran-tentang-jodoh/). Oleh karena itu, jual beli harus dilakukan dengan baik dan jujur agar mendapatkan keberkahan tersendiri.
 
 Berdagang tidak hanya membutuhkan tenaga dan juga proses berfikir, namun juga harus disertai olah spiritual dengan membaca doa agar dagangan laris serta berbagai amalan yang lain. Dengan begitu, Anda akan mendapatkan rahmat dan ridho dari Allah Swt.

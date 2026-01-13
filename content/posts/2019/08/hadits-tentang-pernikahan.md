@@ -101,7 +101,7 @@ Bisa jadi hidup membujang tapi memiliki harta yang melimpah, namun mereka fakir 
 
 Maka dari itu manusia tidak boleh beranggapan bahwa jika menikah maka harta atau uang saya tidak akan cukup untuk menghidupi dua orang atau lebih.
 
-Padahal sebaliknya Allah sudah mengatur rizki setiap makhluknya sehingga seandainya manusia itu fakir niscaya Allah akan membantu [memudahkan rizki](https://34.126.127.69/doa-pembuka-rezeki/) kepadanya.
+Padahal sebaliknya Allah sudah mengatur rizki setiap makhluknya sehingga seandainya manusia itu fakir niscaya Allah akan membantu [memudahkan rizki](https://besttutorial.net/doa-pembuka-rezeki/) kepadanya.
 
 Allah SWT menjanjikan pertolongan kepada orang yang menikah, yang dijelaskan dalam firmanNya QS. Annur Ayat 32:
 

@@ -133,9 +133,9 @@ Terdapat beragam media yang bisa dijadikan sebagai pilihan dalam menikmati suatu
 
 ![lukisan van gogh](/images/seni-rupa-murni.jpg)
 
-Cabang seni yang pertama adalah seni rupa. [****Pengertian seni rupa****](https://34.126.127.69/pengertian-seni-rupa/) merupakan salah satu jenis karya seni yang bisa dirasakan dan dinikmati dengan media penglihatan atau visual. Fokus yang terdapat di dalam seni rupa adalah karya yang diekspresikan dengan beberapa bentuk.
+Cabang seni yang pertama adalah seni rupa. [****Pengertian seni rupa****](https://besttutorial.net/pengertian-seni-rupa/) merupakan salah satu jenis karya seni yang bisa dirasakan dan dinikmati dengan media penglihatan atau visual. Fokus yang terdapat di dalam seni rupa adalah karya yang diekspresikan dengan beberapa bentuk.
 
-Dimana bentuk ekspresi dari seni rupa tersebut meliputi gambar, patung, lukisan, **[kerajinan tangan](https://34.126.127.69/pengertian-kerajinan/)**, multimedia dan masih banyak lagi yang lainnya.
+Dimana bentuk ekspresi dari seni rupa tersebut meliputi gambar, patung, lukisan, **[kerajinan tangan](https://besttutorial.net/pengertian-kerajinan/)**, multimedia dan masih banyak lagi yang lainnya.
 
 2. ### Seni Musik
     
@@ -144,7 +144,7 @@ Dimana bentuk ekspresi dari seni rupa tersebut meliputi gambar, patung, lukisan,
 
 Selain seni rupa, ada juga cabang seni berikutnya yang dikenal dengan seni musik. ****Pengertian seni musik**** ini memang sangat populer karena unsur utama yang dimilikinya menggunakan bunyi. Oleh karena itu, media utama yang dibutuhkan untuk menikmati seni ini adalah pendengaran.
 
-Di dalam seni musik, terdapat beberapa unsur menarik seperti melodi, notasi dan juga harmonisasi tersendiri. Di samping itu, seni musik ini juga dilengkapi dengan alat musik serta suara musik dari manusia. Dan saat ini sudah ada banyak sekali [****jenis-jenis musik****](https://34.126.127.69/jenis-jenis-musik/)  yang dapat dinikmati.
+Di dalam seni musik, terdapat beberapa unsur menarik seperti melodi, notasi dan juga harmonisasi tersendiri. Di samping itu, seni musik ini juga dilengkapi dengan alat musik serta suara musik dari manusia. Dan saat ini sudah ada banyak sekali [****jenis-jenis musik****](https://besttutorial.net/jenis-jenis-musik/)  yang dapat dinikmati.
 
 3. ### Seni Sastra
     
@@ -162,7 +162,7 @@ Adapun kesan dan pesan yang disampaikan cenderung menggunakan kata-kata yang ind
 
 Selain beberapa cabang seni yang telah disebutkan di atas, ada lagi cabang seni berikutnya yang dikenal dengan seni tari. ****Pengertian seni tari**** adalah jenis seni yang menggunakan gerakan tubuh sebagai ekspresi keindahan.
 
-Di dalam seni ini, maksud dan tujuan dari seni disampaikan dengan menggunakan gerakan tubuh berbentuk tari tertentu. [****Pengertian seni tari****](https://34.126.127.69/pengertian-seni-tari/) biasanya akan dipadukan dengan seni musik. Sehingga, gerakan tari yang dihasilkan menjadi lebih sempurna dan lebih konsisten.
+Di dalam seni ini, maksud dan tujuan dari seni disampaikan dengan menggunakan gerakan tubuh berbentuk tari tertentu. [****Pengertian seni tari****](https://besttutorial.net/pengertian-seni-tari/) biasanya akan dipadukan dengan seni musik. Sehingga, gerakan tari yang dihasilkan menjadi lebih sempurna dan lebih konsisten.
 
 5. ### Seni Teater
     
@@ -191,7 +191,7 @@ Oleh karena itu, seni yang ada khususnya seni terapan akan memberikan efek yang 
 
 Fungsi seni yang selanjutnya adalah fungsi seni dalam memenuhi kebutuhan emosional. Harus disadari bahwa tiap individu memiliki jenis kejiwaan yang berbeda dari yang lain. Hal ini akan dapat berpengaruh kepada emosional dan juga perasaan individu tersebut.
 
-Dengan demikian, emosi seseorang juga berbeda pula. Maka dari itu, manusia membutuhkan dorongan dari luar diri mereka. Khususnya dorongan yang dapat memuaskan dan menyenangkan kebutuhan batin. Misalnya saja pada [****pengertian seni teater****](https://34.126.127.69/pengertian-seni-teater).
+Dengan demikian, emosi seseorang juga berbeda pula. Maka dari itu, manusia membutuhkan dorongan dari luar diri mereka. Khususnya dorongan yang dapat memuaskan dan menyenangkan kebutuhan batin. Misalnya saja pada [****pengertian seni teater****](https://besttutorial.net/pengertian-seni-teater).
 
 Dalam hal ini, tiap seniman akan cenderung merasa puas dengan menuangkan rasa, emosi dan pengalaman mereka di dalam sebuah karya. Sehingga, hal ini akan menjadikan batin setiap orang menjadi puas. Di samping itu, para seniman juga dapat menyenangkan orang lain.
 

@@ -74,7 +74,7 @@ Seni Kriya diangggap sebagai seni yang unik dan berkualitas tinggi karena dibuat
 
 Uraian diatas menggambarkan tentang seni kriya yang merupakan cabang seni dengan nilai estetik, simbolik dan filosofis sehingga mewujudkan karya-karya yang adiluhung dan monumental sepanjang sejarah.
 
-Praktek kriya di masa kerajaan dibedakan dengan **[kerajinan](https://34.126.127.69/pengertian-kerajinan/)**, kriya berada dalam lingkup kehidupan istana kerajaan dan pembuatnya bergelar _Empu_. Sedangkan kerajinan berada di luar lingkungan istana dan dikerjakan oleh rakyat jelata atau kawulo alit, pembuatnya disebut _pengrajin_ atau _pandhe_.
+Praktek kriya di masa kerajaan dibedakan dengan **[kerajinan](https://besttutorial.net/pengertian-kerajinan/)**, kriya berada dalam lingkup kehidupan istana kerajaan dan pembuatnya bergelar _Empu_. Sedangkan kerajinan berada di luar lingkungan istana dan dikerjakan oleh rakyat jelata atau kawulo alit, pembuatnya disebut _pengrajin_ atau _pandhe_.
 
 ### **Pengertian Seni Kriya Menurut KBBI (Kamus Besar Bahasa Indonesia)**
 
@@ -150,7 +150,7 @@ pixabay.com
 
 Fungsi utama seni kriya adalah **sebagai benda pakai** (memiliki nilai kegunaan), adapun unsur keindahan yang ada hanyalah sebagai pendukung dan nilai tambah.
 
-**Sebagai Ornamen** (hiasan yang dinilai dari keindahannya), yaitu seni kriya yang dibuat dengan tujuan sebagai benda pajangan atau hiasan. Jenis ini lebih cenderung menekankan aspek keindahan daripada aspek kegunaan atau segi fungsinya, contohnya untuk [**hiasan rumah**](https://34.126.127.69/hiasan-rumah-dari-barang-bekas/).
+**Sebagai Ornamen** (hiasan yang dinilai dari keindahannya), yaitu seni kriya yang dibuat dengan tujuan sebagai benda pajangan atau hiasan. Jenis ini lebih cenderung menekankan aspek keindahan daripada aspek kegunaan atau segi fungsinya, contohnya untuk [**hiasan rumah**](https://besttutorial.net/hiasan-rumah-dari-barang-bekas/).
 
 **Sebagai mainan**, yaitu pembuatan seni kriya yang bertujuan untuk dijadikan sebagai mainan anak-anak.
 
@@ -188,4 +188,4 @@ Untuk memahami pengertian seni kriya secara lebih jelas maka diperlukan pemahama
     Tanah liat merupakan tanah yang lunak yang dapat  menjadi keras jika dibakar. Hal ini dimanfaatkan untuk menghasilkan barang atau benda pakai dan benda hias yang indah dengan melalui berbagai proses seperti dipijit, butsir, pilin, pembakaran dan glasir. Contohnya berupa gerabah, piring dan lain-lain.
 7. ### **Seni Kriya dari barang bekas**
     
-    Banyak barang bekas yang tidak terpakai disekitar kita, seperti botol bekas, kardus bekas, koran bekas dan lain sebagainya yang masih bisa kita manfaatkan sebagai salah satu seni kriya. Diperlukan kreatifitas yang tinggi untuk bisa memanfaatkan barang bekas, banyak karya yang unik yang tercipta dari barang bekas yang bisa dibaca dalam artikel [macam-macam kerajinan dari barang bekas](https://34.126.127.69/kerajinan-dari-barang-bekas/).
+    Banyak barang bekas yang tidak terpakai disekitar kita, seperti botol bekas, kardus bekas, koran bekas dan lain sebagainya yang masih bisa kita manfaatkan sebagai salah satu seni kriya. Diperlukan kreatifitas yang tinggi untuk bisa memanfaatkan barang bekas, banyak karya yang unik yang tercipta dari barang bekas yang bisa dibaca dalam artikel [macam-macam kerajinan dari barang bekas](https://besttutorial.net/kerajinan-dari-barang-bekas/).

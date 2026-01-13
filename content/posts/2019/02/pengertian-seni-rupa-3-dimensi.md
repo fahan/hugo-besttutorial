@@ -10,7 +10,7 @@ coverImage: "pengertian-seni-rupa-3-dimensi.jpg"
 slug: "pengertian-seni-rupa-3-dimensi"
 ---
 
-[Seni rupa](https://34.126.127.69/pengertian-seni-rupa/) terbagi dalam berbagai jenis berdasarkan aspek pembangiannya masing-masing. Jika melihat pada bentuknya, maka bisa di jumpai seni rupa dalam bentuk 2 dimensi dan 3 dimensi. Dalam hal ini seni rupa 3 dimensi memiliki tingkat kepopuleran yang cukup tinggi. Oleh karena itu, tidak heran jika pengertian seni rupa 3 dimensi beserta aspek penting terkaitnya penting dikenali.
+[Seni rupa](https://besttutorial.net/pengertian-seni-rupa/) terbagi dalam berbagai jenis berdasarkan aspek pembangiannya masing-masing. Jika melihat pada bentuknya, maka bisa di jumpai seni rupa dalam bentuk 2 dimensi dan 3 dimensi. Dalam hal ini seni rupa 3 dimensi memiliki tingkat kepopuleran yang cukup tinggi. Oleh karena itu, tidak heran jika pengertian seni rupa 3 dimensi beserta aspek penting terkaitnya penting dikenali.
 
 Seni rupa 3 dimensi ini banyak di jumpai baik dalam jenis karya seni rupa murni maupun seni rupa terapan. Pembuatan karya seni ini pada umumnya memiliki tingkat kesulitan yang lebih tinggi dibandingkan dengan yang 2 dimensi. Nah, untuk mengenal informasi lebih jauh tentangnya, simak ulasan di bawah ini.
 
@@ -28,7 +28,7 @@ pixabay.com
 
 </figure>
 
-Jika [seni rupa dua dimensi](https://34.126.127.69/pengertian-seni-rupa-2-dimensi/) hanya di batasi oleh 2 sisi, maka pengertian seni rupa tiga dimensi ini adalah seni rupa yang di batasi oleh 3 sisi. Ketiganya tidak lain adalah sisi panjang, lebar dan tinggi.
+Jika [seni rupa dua dimensi](https://besttutorial.net/pengertian-seni-rupa-2-dimensi/) hanya di batasi oleh 2 sisi, maka pengertian seni rupa tiga dimensi ini adalah seni rupa yang di batasi oleh 3 sisi. Ketiganya tidak lain adalah sisi panjang, lebar dan tinggi.
 
 Jadi, seni rupa 3 dimensi akan tampak lebih hidup dan nyata dibandingkan dengan yang 2 dimensi. Sedangkan dari sisi unsur yang dimiliki, yang jelas membedakan keduanya adalah ruang.
 
@@ -74,7 +74,7 @@ Sedangkan bahan utamanya adalah kertas. Singkatnya, teknik ini di lakukan dengan
 
 ### **7\. Teknik Anyaman**
 
-Teknik anyaman dalam pembuatan karya seni rupa 3 dimensi hingga saat ini masih banyak di temukan. Sedangkan diantara beberapa bahan yang mungkin di gunakan adalah seperti bambu, kertas, daun dan lain-lain. Sedangkan contoh seni rupa 3 dimensi dengan teknik ini biasa di jumpai dalam karya seni rupa terapan tradisional seperti [kerajinan](https://34.126.127.69/pengertian-kerajinan/).
+Teknik anyaman dalam pembuatan karya seni rupa 3 dimensi hingga saat ini masih banyak di temukan. Sedangkan diantara beberapa bahan yang mungkin di gunakan adalah seperti bambu, kertas, daun dan lain-lain. Sedangkan contoh seni rupa 3 dimensi dengan teknik ini biasa di jumpai dalam karya seni rupa terapan tradisional seperti [kerajinan](https://besttutorial.net/pengertian-kerajinan/).
 
 ### **8\. Teknik Butsir**
 
@@ -86,7 +86,7 @@ Diantara bahan yang familiar di gunakan adalah tanah liat dan plastisi. Sedangka
 
 Untuk mengenal secara lebih dalam lagi terkait contoh karya seni rupa 3 dimensi, maka Anda harus mengetahui apa saja wujud nyatanya. Karya 3 dimensi ini sebenarnya lebih luas lagi.
 
-Ada banyak pula hasil karya serupa yang masuk daftar karya [seni rupa terapan](https://34.126.127.69/pengertian-seni-rupa-terapan/). Namun, secara umum berikut ini adalah beberapa yang banyak di jumpai dan cukup populer.
+Ada banyak pula hasil karya serupa yang masuk daftar karya [seni rupa terapan](https://besttutorial.net/pengertian-seni-rupa-terapan/). Namun, secara umum berikut ini adalah beberapa yang banyak di jumpai dan cukup populer.
 
 ### **1\. Kriya**
 
@@ -102,7 +102,7 @@ pixabay.com
 
 </figure>
 
-Berbicara mengenai pengertian seni rupa 3 dimensi, kriya adalah salah satu contoh yang sangat populer dengan keunikan dan bentuknya yang menarik. Hal ini dipengaruhi pula mengingat bahwa dalam pembuatannya [kriya](https://34.126.127.69/pengertian-seni-kriya/) memerlukan keterampilan tangan yang cukup tinggi. Sedangkan dalam pembuatannya, ada banyak teknik yang bisa di aplikasikan sesuai keinginan.
+Berbicara mengenai pengertian seni rupa 3 dimensi, kriya adalah salah satu contoh yang sangat populer dengan keunikan dan bentuknya yang menarik. Hal ini dipengaruhi pula mengingat bahwa dalam pembuatannya [kriya](https://besttutorial.net/pengertian-seni-kriya/) memerlukan keterampilan tangan yang cukup tinggi. Sedangkan dalam pembuatannya, ada banyak teknik yang bisa di aplikasikan sesuai keinginan.
 
 ### **2\. Keramik**
 
@@ -118,7 +118,7 @@ pixabay.com
 
 </figure>
 
-Seni rupa dalam bentuk keramik memang merupakan salah satu bentuk yang sangat populer baik dari zaman tradisional hingga modern. Dalam pembuatannya ada banyak pula cara yang bisa di lakukan. Hasil seni rupa keramik ini memiliki banyak fungsi. Adakalanya masuk dalam jenis karya [seni rupa murni](https://34.126.127.69/pengertian-seni-rupa-murni/) maupun terapan.
+Seni rupa dalam bentuk keramik memang merupakan salah satu bentuk yang sangat populer baik dari zaman tradisional hingga modern. Dalam pembuatannya ada banyak pula cara yang bisa di lakukan. Hasil seni rupa keramik ini memiliki banyak fungsi. Adakalanya masuk dalam jenis karya [seni rupa murni](https://besttutorial.net/pengertian-seni-rupa-murni/) maupun terapan.
 
 ### **3\. Patung**
 

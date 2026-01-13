@@ -63,7 +63,7 @@ Seperti pepatah yang mengatakan,
 
 Maka dari itu jika kamu sudah merasa sangat pintar,  artinya sudah lama kamu tidak mempelajari sebuah bidang ilmu yang baru.
 
-Ilmu komputer memiliki cabang ilmu yang begitu banyak, namun yang saya pelajari di jurusan TKJ hanya sebatas dasarnya saja seperti bagaimana [memasang sistem operasi](https://34.126.127.69/tutorial-cara-instal-windows-10) mengoperasikan, _troubleshouting,_  merakit dan membongkar komputer.
+Ilmu komputer memiliki cabang ilmu yang begitu banyak, namun yang saya pelajari di jurusan TKJ hanya sebatas dasarnya saja seperti bagaimana [memasang sistem operasi](https://besttutorial.net/tutorial-cara-instal-windows-10) mengoperasikan, _troubleshouting,_  merakit dan membongkar komputer.
 
 Semua dasar tentang komputer diajarkan di kelas X SMK, dikelas XI sudah mulai diajarkan tentang bagaimana membangun jaringan komputer. Dimulai dari antar meja, antar ruangan, antar bangunan, antar kota, antar provinsi sampai antar benua.
 

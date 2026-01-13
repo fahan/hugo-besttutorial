@@ -63,7 +63,7 @@ Namun, tidak selamanya yang baik itu akan selalu baik (aseeekk!), pasti ada juga
 
 Karena dampak positif dan negatif internet saling berkesinambungan, ketika ada hal positifnya pasti kemudian hal negatifnya muncul juga.
 
-Ada beberapa dampak positif dan negatif dari perkembangan teknologi. Semakin majunya teknologi pasti akan memunculkan sisi negatif bagi pengguna. Jika tidak digunakan secara baik itulah [serunya hidup di era digital](https://34.126.127.69/aplikasi-produktivitas/) ini.
+Ada beberapa dampak positif dan negatif dari perkembangan teknologi. Semakin majunya teknologi pasti akan memunculkan sisi negatif bagi pengguna. Jika tidak digunakan secara baik itulah [serunya hidup di era digital](https://besttutorial.net/aplikasi-produktivitas/) ini.
 
 Biar lebih gampangnya, kita lihat saja ya dampak positif internet dan dampak negatif internet dari berbagai aspek kehidupan di bawah ini:
 
@@ -198,7 +198,7 @@ Ya… Bisa saja. Inilah keuntungan kamu yang hidup di era internet atau digital.
 
 Apabila ada barang bekas yang sekiranya masih bagus dan layak dipakai, kamu bisa menjualnya di situs jual beli _online_ tersebut. Malah kamu juga bisa mendapat untung.
 
-Bahkan ada berbagai cara lain untuk bisa [mendulang rupiah di era digital](https://34.126.127.69/serunya-hidup-di-era-digital), seperti berjualan di situs jual beli _online_ atau _marketplace._
+Bahkan ada berbagai cara lain untuk bisa [mendulang rupiah di era digital](https://besttutorial.net/serunya-hidup-di-era-digital), seperti berjualan di situs jual beli _online_ atau _marketplace._
 
 Contoh dari situs jual beli _online_ yang sedang trending sekarang adalah _Buka Lapak, Tokopedia, Lazada, Shopee, Blibli.com, Blanja.com, dan Zilingo_.
 
@@ -258,7 +258,7 @@ Jangan khawatir dengan “_long distance relationship_” hehe…
 
 Jika pacar atau pasangan (bisa suami atau istri) kamu jauh, jangan takut. Kamu tetap bisa berkomunikasi.
 
-Bagi kamu yang jomblo, kamu juga bisa menemukan pasanganmu di Internet dengan menggunakan berbagai [aplikasi cari jodoh](https://34.126.127.69/aplikasi-cari-jodoh-terpopuler/) yang sudah banyak tersedia di Internet.
+Bagi kamu yang jomblo, kamu juga bisa menemukan pasanganmu di Internet dengan menggunakan berbagai [aplikasi cari jodoh](https://besttutorial.net/aplikasi-cari-jodoh-terpopuler/) yang sudah banyak tersedia di Internet.
 
 Apalagi fitur telepon pintar semakin canggih dengan adanya kamera depan kalian bisa video call dan melihat wajah pasangan kalian yang jauh. Contohnya dengan _Skype, Whatsapp, dan LINE_.
 
@@ -347,7 +347,7 @@ Situs langganan yang sering mereka buka adalah situs PORNO.
 
 Ya…
 
-**Baca Juga :** [Cara Screenshoot di Laptop](https://34.126.127.69/cara-screenshot-di-laptop/)
+**Baca Juga :** [Cara Screenshoot di Laptop](https://besttutorial.net/cara-screenshot-di-laptop/)
 
 Berbahaya sekali jika dari kecil terbiasa menonton video porno. Tentunya itu akan merusak otak.
 

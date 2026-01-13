@@ -55,7 +55,7 @@ pixabay.com | Seniman
 
 Kerajinan merupakan salah satu kekayaan yang dimiliki Negara Indonesia. Banyak kerajinan yang dimiliki Indonesia seperti kerajinan bambu, kerajinan plastik, kerajinan kulit, kerajinan kayu, kerajinan logam, kerajinan batik, kerajinan rotan, dan masih banyak lagi kerajinan lainnya.
 
-Nama lain dari Kerajinan adalah Seni Kriya yang bisa kamu baca detailnya dalam **_[pembahasan seni kriya](https://34.126.127.69/pengertian-seni-kriya/)_**. Banyak maestro seni di Indonesia yang memiliki definisi masing-masing terhadap kerajinan.
+Nama lain dari Kerajinan adalah Seni Kriya yang bisa kamu baca detailnya dalam **_[pembahasan seni kriya](https://besttutorial.net/pengertian-seni-kriya/)_**. Banyak maestro seni di Indonesia yang memiliki definisi masing-masing terhadap kerajinan.
 
 ### Pendapat Para Ahli Seni
 
@@ -130,7 +130,7 @@ Dalam kerajinan tentunya ada yang namanya kerajinan tangan dimana pengertian ker
 
 Banyak hasil karya dari kerajinan tangan yang dibuat oleh para seniman yang telah berhasil dan mampu menjual karyanya yang bagus dengan nilai jual tinggi.
 
-Bahkan karyanya yang dimanfaatkan sebagai [**hiasan rumah yang terbuat dari barang bekas**](https://34.126.127.69/hiasan-rumah-dari-barang-bekas/) yang didaur ulang dan dibentuk sedemikian rupa sehingga jadilah kerajinan tangan yang indah.
+Bahkan karyanya yang dimanfaatkan sebagai [**hiasan rumah yang terbuat dari barang bekas**](https://besttutorial.net/hiasan-rumah-dari-barang-bekas/) yang didaur ulang dan dibentuk sedemikian rupa sehingga jadilah kerajinan tangan yang indah.
 
 ### **2\. Kerajinan Anyaman**
 
@@ -228,7 +228,7 @@ Berdasarkan jenis teknik pembuatannya yaitu: rajut, kempa, tenun, renda, benang 
 
 * * *
 
-Itulah sebagian penjelasan tentang pengertian kerajinan dan berbagai macam dan contohnya yang memiliki manfaat masing-masing dalam kehidupan sehari-hari. Masih ada banyak lagi contoh kerajinan seperti pada artikel **[macam-macam kerajinan dari barang bekas](https://34.126.127.69/kerajinan-dari-barang-bekas/)**.
+Itulah sebagian penjelasan tentang pengertian kerajinan dan berbagai macam dan contohnya yang memiliki manfaat masing-masing dalam kehidupan sehari-hari. Masih ada banyak lagi contoh kerajinan seperti pada artikel **[macam-macam kerajinan dari barang bekas](https://besttutorial.net/kerajinan-dari-barang-bekas/)**.
 
 Mari bantu melestarikan budaya dan Kerajinan bangsa ini dengan mengapresisasi para seniman di nusantara.
 

@@ -16,11 +16,11 @@ Siapa sih yang tidak mau rumahnya terlihat indah dengan berbagai macam hiasan di
 
 Secara, untuk memberi pernak-pernik sebagai penghias rumah diperlukan barang-barang yang mahal. Tapi sebenernya kamu tidak harus mengeluarkan biaya yang banyak untuk bisa membuat rumahmu tampak lebih indah.
 
-Kamu bisa memanfaatkan berbagai macam barang bekas yang tidak terpakai untuk dijadikan hiasan rumah yang indah, bahkan mungkin bisa kamu jual, karena hal tersebut termasuk dalam **[seni kriya](https://34.126.127.69/pengertian-seni-kriya/)**.
+Kamu bisa memanfaatkan berbagai macam barang bekas yang tidak terpakai untuk dijadikan hiasan rumah yang indah, bahkan mungkin bisa kamu jual, karena hal tersebut termasuk dalam **[seni kriya](https://besttutorial.net/pengertian-seni-kriya/)**.
 
 Mungkin sebagian dari kita sering menganggap barang bekas adalah sesuatu yang tidak berharga, Sehingga seringkali dibuang atau dijual ke tukang loak dengan harga yang sangat murah.
 
-Bagi kamu yang memiliki jiwa kreatif atau keampuan **[kerajinan](https://34.126.127.69/pengertian-kerajinan/)**, kamu bisa merubah barang bekas tersebut menjadi hiasan rumah yang bernilai estetika dan juga materil, sehingga bisa dijadikan hiasan rumah dari barang bekas yang indah.
+Bagi kamu yang memiliki jiwa kreatif atau keampuan **[kerajinan](https://besttutorial.net/pengertian-kerajinan/)**, kamu bisa merubah barang bekas tersebut menjadi hiasan rumah yang bernilai estetika dan juga materil, sehingga bisa dijadikan hiasan rumah dari barang bekas yang indah.
 
 Selain bisa menambah finansial dan memperindah dekorasi rumah, kamu juga bisa mengurangi pencemaran lingkungan akibat sampah dari barang bekas yang dibuang.
 
@@ -560,6 +560,6 @@ Hiasi cermin kamarmu dengan kepingan cd yang membentuk bingkai cermin yang indah
 
 * * *
 
-Itulah beberapa ide hiasan rumah dari barang bekas yang bisa kamu praktekan dan kamu buat. Kamu juga bisa melihat berbagai macam contoh ide lainnya dalam artikel [kerajinan tangan dari barang bekas](https://34.126.127.69/kerajinan-dari-barang-bekas/).
+Itulah beberapa ide hiasan rumah dari barang bekas yang bisa kamu praktekan dan kamu buat. Kamu juga bisa melihat berbagai macam contoh ide lainnya dalam artikel [kerajinan tangan dari barang bekas](https://besttutorial.net/kerajinan-dari-barang-bekas/).
 
 _**see you on next article. . . .:D**_

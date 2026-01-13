@@ -31,7 +31,7 @@ Jika dihubungkan dengan doa untuk membuka rezeki, maka di antara doa rezeki umum
 
 \[caption id="attachment\_538" align="aligncenter" width="800"\]![doa mendapatkan jodoh yang diinginkan](/images/alquran.jpg) pixabay.com\[/caption\]
 
-Sebagaimana diketahui, Alquran adalah pedoman hidup umat Islam yang bisa dijadikan andalan dalam berbagai hal. Begitu juga jika berkaitan dengan rezeki maupun jodoh. Dalam Alquran ini banyak terdapat [**doa dimudahkan segala urusan**](https://34.126.127.69/doa-dimudahkan-segala-urusan/), termasuk urusan rezeki.
+Sebagaimana diketahui, Alquran adalah pedoman hidup umat Islam yang bisa dijadikan andalan dalam berbagai hal. Begitu juga jika berkaitan dengan rezeki maupun jodoh. Dalam Alquran ini banyak terdapat [**doa dimudahkan segala urusan**](https://besttutorial.net/doa-dimudahkan-segala-urusan/), termasuk urusan rezeki.
 
 Mengamalkan doa dalam Alquran tentu saja bukan hal yang asing lagi dilakukan. Khasiatnya pun sudah jelas adanya dan banyak terbukti sejauh ini. Dengan demikian, Anda bisa turut mencoba beberapa Kumpulan doa mustajab pembuka pintu rezeki yang diambil dari Alquran berikut ini.
 
@@ -117,7 +117,7 @@ Namun, berkaitan dengan dikabulkannya doa saat ini atau kapan, hanya Allah yang 
 
 Doa lancar rezeki dan jodoh  tentu saja adalah dua hal yang tidak bisa dipisahkan. Hal ini karena jodoh merupakan bagian dari rezeki yang harus diperjuangkan dan harus masuk dalam doa setiap hamba.
 
-Karena itulah, setiap orang perlu meyakini bahwa jodoh sudah diatur dan ditentukan oleh Allah sebagaimana rezeki. Sedangkan dalam pencariannya, alangkah baiknya mengikuti pedoman sebagaimana banyak [****ayat alquran tentang jodoh****](https://34.126.127.69/ayat-alquran-tentang-jodoh/) yang sudah memiliki pemaparan yang jelas.
+Karena itulah, setiap orang perlu meyakini bahwa jodoh sudah diatur dan ditentukan oleh Allah sebagaimana rezeki. Sedangkan dalam pencariannya, alangkah baiknya mengikuti pedoman sebagaimana banyak [****ayat alquran tentang jodoh****](https://besttutorial.net/ayat-alquran-tentang-jodoh/) yang sudah memiliki pemaparan yang jelas.
 
 Selanjutnya, berbicara mengenai doa untuk mendekatkan jodoh, sebenarnya bisa menggunakan pula amalan mendatangkan rezeki secara umum. Namun, ada beberapa doa khusus yang juga bisa dipanjatkan sehingga jodoh bisa lebih cepat dekat lagi.
 
@@ -127,7 +127,7 @@ __Rabbi hablii min ladunka zaujan thayyiban akhthubuhaa wa atazawwaju bihaa wata
 
 Artinya : Ya Rabb, berikanlah kepadaku Istri yang terbaik di sisi-Mu, istri yang aku lamar dan nikahi dan istri yang menjadi sahabatku dalam urusan agama, urusan dunia dan akhirat.
 
-Doa dari  Alquran ini jelas tidak hanya bermaksud sebagai [****doa minta jodoh****](https://34.126.127.69/doa-mendapatkan-jodoh-yang-diinginkan/) saja. Lebih dari itu, kalimat tersebut juga mengandung doa untuk mendapatkan jodoh yang baik untuk kebahagiaan dunia dan akhirat.
+Doa dari  Alquran ini jelas tidak hanya bermaksud sebagai [****doa minta jodoh****](https://besttutorial.net/doa-mendapatkan-jodoh-yang-diinginkan/) saja. Lebih dari itu, kalimat tersebut juga mengandung doa untuk mendapatkan jodoh yang baik untuk kebahagiaan dunia dan akhirat.
 
 Jodoh yang baik juga merupakan sebuah rezeki tiada tara. Oleh sebab itu, dalam berdoa tidak cukup meminta jodoh didekatkan saja, namun jangan lupa memohon untuk mendapatkan jodoh yang baik dari Allah.
 

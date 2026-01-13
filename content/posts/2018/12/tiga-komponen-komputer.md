@@ -54,7 +54,7 @@ Seperti data angka, gambar dan suara. 
 
 Secara umum komputer merupakan alat elektronik yang menerima data, mengolah data, dan mengeluarkan hasil berupa teks, suara, gambar atau video.
 
-[Komputer](https://34.126.127.69/pengertian-komputer/) atau PC (_Personal Compute_r) generasi keempat yang menjadi primadona belakangan ini karena memberi manfaat luar biasa dengan berbagai macam keunggulannya. 
+[Komputer](https://besttutorial.net/pengertian-komputer/) atau PC (_Personal Compute_r) generasi keempat yang menjadi primadona belakangan ini karena memberi manfaat luar biasa dengan berbagai macam keunggulannya. 
 
 Para pekerja dan gamers lebih memilih menggunakan komputer karena kemampuannya diatas console. 
 
@@ -201,7 +201,7 @@ Pengertian software adalah perangkat lunak yang berisi perintah yang dimengerti 
 Secara fisik perangkat ini tidak dapat dilihat dan dipegang. Contoh dari jenis perangkat lunak adalah :
 
 - **Sistem Operasi** : Software yang berfungsi untuk mengorganisasikan semua komponen komputer.  
-    Contohnya seperti Windows, Mac OS, [Sistem Operasi Linux](https://34.126.127.69/sistem-operasi-linux-terbaik/) dan Unix.
+    Contohnya seperti Windows, Mac OS, [Sistem Operasi Linux](https://besttutorial.net/sistem-operasi-linux-terbaik/) dan Unix.
 - **Software Aplikasi** : Secara umum pengertian aplikasi merupakan program yang secara langsung dapat melakukan proses-proses yang digunakan computer dalam memenuhi kebutuhan dan kepentingan penggunanya.  
     Contohnya seperti Microsoft Office, Microsoft Visual Basic, Libre Office dan masih banyak lagi.
 - **Program bantu komputer (_Utillity_)**: Suatu program yang berfungsi membantu mengisi kelemahan dari Sistem Operasi.  
@@ -221,7 +221,7 @@ Brainware | pixabay.com
 
 </figure>
 
-Komponen ketiga ini merupakan perangkat otak pengoperasian komputer. Brainware yang bertanggung jawab penuh dalam berjalannya komputer dari mulai pemilihan [metode instalasi sistem operasi](https://34.126.127.69/metode-instalasi-sistem-operasi/) sampai pengoperasian seluruh aplikasi  yang ada didalam sistem operasi tersebut.
+Komponen ketiga ini merupakan perangkat otak pengoperasian komputer. Brainware yang bertanggung jawab penuh dalam berjalannya komputer dari mulai pemilihan [metode instalasi sistem operasi](https://besttutorial.net/metode-instalasi-sistem-operasi/) sampai pengoperasian seluruh aplikasi  yang ada didalam sistem operasi tersebut.
 
 Komponen ini adalah orang yang mengoperasikan dan mengendalikan sistem komputer itu sendiri.
 

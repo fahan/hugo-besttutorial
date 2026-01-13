@@ -18,7 +18,7 @@ foreach ($file in $mdFiles) {
     $originalContent = $content
     
     # Pattern to match WordPress image URLs
-    # Matches: https://34.126.127.69/wp-content/uploads/YYYY/MM/filename.ext
+    # Matches: https://besttutorial.net/wp-content/uploads/YYYY/MM/filename.ext
     # Also matches: http://besttutorial.net/wp-content/uploads/YYYY/MM/filename.ext
     $pattern = 'https?://[^/]+/wp-content/uploads/\d{4}/\d{2}/([^)\s"]+)'
     

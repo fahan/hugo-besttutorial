@@ -7,7 +7,7 @@ coverImage: "2.-Pengertian-seni-teater..png"
 slug: "pengertian-seni-teater"
 ---
 
-Teater bukanlah [seni](https://34.126.127.69/pengertian-seni/) yang asing di Indonesia sejak dahulu hingga sekarang. Teater memiliki beragam cakupan yang sangat luas. Bahkan, berbagai ahli memiliki pandangan mengenai pengertian seni teater yang berbeda antara satu pandangan dengan pandangan yang lain.
+Teater bukanlah [seni](https://besttutorial.net/pengertian-seni/) yang asing di Indonesia sejak dahulu hingga sekarang. Teater memiliki beragam cakupan yang sangat luas. Bahkan, berbagai ahli memiliki pandangan mengenai pengertian seni teater yang berbeda antara satu pandangan dengan pandangan yang lain.
 
 Dalam beberapa kasus, masyarakat banyak yang menganggap bahwa seni teater identik atau sama dengan seni drama. Padahal, keduanya memiliki perbedaan tersendiri. Maka dari itu, pada artikel berikut ini akan diulas mengenai pengertian seni teater dan berbagai hal yang berhubungan dengannya.
 
@@ -243,7 +243,7 @@ Berikutnya adalah crew yang menjadi pemegang divisi dari masing-masing sub yang 
 5. #### Desainer
     
 
-Tidak sebatas itu, masih ada lagi unsur eksternal lain dari seni teater yang dikenal dengan desainer. Desainer di sini bertugas mempersiapkan keseluruhan aspek visual yang berhubungan dengan berbagai hal. Sebagaimana yang ada pada [****pengertian seni tari****](https://34.126.127.69/pengertian-seni-tari/).
+Tidak sebatas itu, masih ada lagi unsur eksternal lain dari seni teater yang dikenal dengan desainer. Desainer di sini bertugas mempersiapkan keseluruhan aspek visual yang berhubungan dengan berbagai hal. Sebagaimana yang ada pada [****pengertian seni tari****](https://besttutorial.net/pengertian-seni-tari/).
 
 Misalnya setting yang menyangkut suasana atau tempat, perlengkapan untuk pentas seperti properti, kostum, pencahayaan, tata lampu serta aneka kebutuhan perlengkapan yang lain.
 
@@ -289,7 +289,7 @@ Di Indonesia, teater boneka yang cukup terkenal adalah wayang kulit. Dalam kesen
 4. ### Jenis Teater Musikal
     
 
-Teater musikal adalah jenis teater yang di dalamnya terdapat gabungan seni tari, seni peran dan juga seni musik. Kemudian di dalamnya disertai dengan dialog khusus dari pemain yang ada. Teater musikal ini dikatakan berkualitas dan baik apabila ada harmonisasi antara lagu, [****jenis-jenis tari****](https://34.126.127.69/jenis-jenis-tari/) dan juga kalimatnya.
+Teater musikal adalah jenis teater yang di dalamnya terdapat gabungan seni tari, seni peran dan juga seni musik. Kemudian di dalamnya disertai dengan dialog khusus dari pemain yang ada. Teater musikal ini dikatakan berkualitas dan baik apabila ada harmonisasi antara lagu, [****jenis-jenis tari****](https://besttutorial.net/jenis-jenis-tari/) dan juga kalimatnya.
 
 Teater musikal juga bisa disebut dengan drama musikal karena di dalam pertunjukan drama ini terdapat kombinasi dari beberapa hal, mulai dari tata pentas, alunan musik dan juga tarian. Di antara jenis teater atau drama musikal yang populer saat ini adalah Opera dan Kabaret.
 

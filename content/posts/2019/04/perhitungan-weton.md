@@ -19,7 +19,7 @@ Jika dikaitkan dengan Islam, tentu saja dalam budaya Islam yang awalnya lahir di
 
 \[caption id="attachment\_554" align="aligncenter" width="697"\]![apa itu jodoh](/images/apa-itu-jodoh-3.jpg) arrahman.id\[/caption\]
 
-Sebenarnya, [****apa itu jodoh****](https://34.126.127.69/apa-itu-jodoh/) menurut Islam? Jodoh dalam Islam berarti pasangan hidup yang sudah ditakdirkan oleh Allah. Hal ini sesuai dengan firman-Nya dimana manusia diciptakan berpasang-pasangan sehingga jodoh sudah masing-masing sudah ditentukan.
+Sebenarnya, [****apa itu jodoh****](https://besttutorial.net/apa-itu-jodoh/) menurut Islam? Jodoh dalam Islam berarti pasangan hidup yang sudah ditakdirkan oleh Allah. Hal ini sesuai dengan firman-Nya dimana manusia diciptakan berpasang-pasangan sehingga jodoh sudah masing-masing sudah ditentukan.
 
 Terkait jodoh tersebut, Islam memandang bahwa meski sudah ditetapkan setiap individu harus berusaha mencari jodoh yang baik. Ada banyak hal yang perlu menjadi pertimbangan. Di antaranya adalah seberapa baik sikap pasangan yang dipilih.
 
@@ -112,13 +112,13 @@ Meski demikian, tidak semua ulama berpijak pada hukum yang sama. Sebagian lain a
 
 Hidup ditengah masyarakat Jawa sekaligus masyarakat Islam tentu bukan hal yang mudah, apalagi berkaitan dengan jodoh. Oleh sebab itu harus disikapi dengan bijak sehingga tidak terjerumus dalam hukum agama yang salah, namun juga tidak mendapatkan permasalahan ditengah masyarakat.
 
-Dalam hal ini, sebagai umat Islam sudah jelas kita dilarang mempercayai segala perhitungan yang belum pasti. Apalagi untuk perkara-perkara gaib. Sedangkan untuk mendapatkan jodoh yang baik, maka harus senantiasa memanjatkan [****doa mendapatkan jodoh****](https://34.126.127.69/doa-mendapatkan-jodoh-yang-diinginkan/) terbaik pada Allah.
+Dalam hal ini, sebagai umat Islam sudah jelas kita dilarang mempercayai segala perhitungan yang belum pasti. Apalagi untuk perkara-perkara gaib. Sedangkan untuk mendapatkan jodoh yang baik, maka harus senantiasa memanjatkan [****doa mendapatkan jodoh****](https://besttutorial.net/doa-mendapatkan-jodoh-yang-diinginkan/) terbaik pada Allah.
 
 Dengan atau tanpa perhitungan jodoh dalam weton jawa, jika berusaha semaksimal mungkin menjadi orang baik dan berdoa pada Allah untuk mendapatkannya, maka hasilnya pun akan demikian. Terkait hal itu, ada sebuah quote yang menyatakan.
 
 “ibarat kamu ingin mendapat jodoh sebagaimana Ali Bin Abi Thalib, maka perbaiki dirimu untuk menjadi selayaknya Fatimah binti Muhammad. Karena wanita yang baik ditakdirkan untuk lelaki yang baik, dan berlaku pula sebaliknya”
 
-Selain itu, menyinggung sedikit terkait pemilihan hari, alangkah baiknya jika mengikuti bulan-bulan yang baik dan dianjurkan dalam Islam. Salah satunya seperti pada bulan Dzulhijjah di mana saat itu ada ribuan umat muslim melaksanakan ibadah haji dan [****umroh****](https://34.126.127.69/pengertian-umroh/) di tanah suci.
+Selain itu, menyinggung sedikit terkait pemilihan hari, alangkah baiknya jika mengikuti bulan-bulan yang baik dan dianjurkan dalam Islam. Salah satunya seperti pada bulan Dzulhijjah di mana saat itu ada ribuan umat muslim melaksanakan ibadah haji dan [****umroh****](https://besttutorial.net/pengertian-umroh/) di tanah suci.
 
 Kembali membahas mengenai cara menyikapi kepercayaan masyarakat terkait weton jawa maupun weton rejeki, usahakan tetap menjaga sikap. Biarlah mereka yang bersikukuh mempercayainya. Sedankan sikap diam ini dilakukan dalam rangka menjaga perdamaian dan persaudaraan bangsa.
 

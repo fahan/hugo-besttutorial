@@ -66,7 +66,7 @@ Umroh merupakan ibadah umat islam yang hukumnya sunnah, walaupun demikian umroh 
 13. **Mengajari makna bersabar.**
 14. **Meningkatkan iman dan taqwa.**
 
-Ibadah umroh merupakan ibadah yang begitu afdhol untuk berdoa karena lokasinya yang begitu dekat dengan Baitullah, bagi kamu yang sedang mencari jodoh juga dapat memanjatkan [doa minta jodoh](https://34.126.127.69/doa-mendapatkan-jodoh-yang-diinginkan/) ketika ibadah umroh, InsyaAllah segera diijabah.
+Ibadah umroh merupakan ibadah yang begitu afdhol untuk berdoa karena lokasinya yang begitu dekat dengan Baitullah, bagi kamu yang sedang mencari jodoh juga dapat memanjatkan [doa minta jodoh](https://besttutorial.net/doa-mendapatkan-jodoh-yang-diinginkan/) ketika ibadah umroh, InsyaAllah segera diijabah.
 
 Pengertian umroh sangat fundamental untuk dipahami bagi para muslim yang akan melaksanakannya, sehingga wajib untuk memahami pengertian umroh secara mendetail.
 

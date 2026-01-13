@@ -7,7 +7,7 @@ coverImage: "font-keren-untuk-desain-kaos-distro.png"
 slug: "font-keren-kaos-distro"
 ---
 
-Kaos distro dengan beragam jenis desainnya saat ini menjadi sangat populer sehingga tidak heran jika banyak juga yang memburunya. Nah, bagi Anda para perancang kaos serupa, tentu membutuhkan referensi font keren untuk desain kaos distro yang bentuknya tidak sembarangan karena font merupakan salah satu karya [seni rupa 2 dimensi](https://34.126.127.69/pengertian-seni-rupa-2-dimensi/). Dalam hal ini perlu diketahui bahwa ada banyak pilihan yang bisa menjadi rujukan Anda.
+Kaos distro dengan beragam jenis desainnya saat ini menjadi sangat populer sehingga tidak heran jika banyak juga yang memburunya. Nah, bagi Anda para perancang kaos serupa, tentu membutuhkan referensi font keren untuk desain kaos distro yang bentuknya tidak sembarangan karena font merupakan salah satu karya [seni rupa 2 dimensi](https://besttutorial.net/pengertian-seni-rupa-2-dimensi/). Dalam hal ini perlu diketahui bahwa ada banyak pilihan yang bisa menjadi rujukan Anda.
 
 Beragam font ini bisa Anda dapatkan dengan mudah sebenarnya. Salah satu caranya adalah dengan download di internet. Namun, yang pasti sebelumnya Anda harus mengenali terlebih dahulu nama font yang diinginkan sekaligus wujud atau bentuk font tersebut. Nah, untuk mengenal beberapa nama font keren yang di maksud, simak ulasannya di bawah ini.
 

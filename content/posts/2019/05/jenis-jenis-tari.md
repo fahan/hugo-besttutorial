@@ -33,7 +33,7 @@ Namun, di era sekarang, jenis tari satu ini lebih dipentaskan ketika sambutan k
 
 \[caption id="attachment\_2587" align="aligncenter" width="620"\]![contoh tari totemis (tari merak jawa barat)](/images/contoh-tari-totemis-tari-merak-jawa-barat.jpg) Tari Merak Via kompas.id\[/caption\]
 
-Selain tari heroik, ada juga jenis tari yang dikenal dengan tari totemis. Contoh dari tarian yang tergolong tari totemis adalah tari Merak yang berasal dari daerah Jawa Barat. [****Nama tarian daerah****](https://34.126.127.69/nama-tarian-daerah/) ini lebih menggambarkan perilaku dan karakter dari burung merak.
+Selain tari heroik, ada juga jenis tari yang dikenal dengan tari totemis. Contoh dari tarian yang tergolong tari totemis adalah tari Merak yang berasal dari daerah Jawa Barat. [****Nama tarian daerah****](https://besttutorial.net/nama-tarian-daerah/) ini lebih menggambarkan perilaku dan karakter dari burung merak.
 
 Di antara gambaran karakter yang ada di dalam tarian ini adalah suka cita, harmonis dan juga canda. Tarian ini juga menggambarkan wujud visual dari hadirnya burung merak. Dalam beberapa kondisi, tarian ini dikenal dengan jenis tari kreasi baru.
 
@@ -101,7 +101,7 @@ Berikutnya adalah jenis-jenis tari berdasarkan kepada pola penggarapannya. Beri
 
 Jenis tari berdasarkan pola garapannya yang pertama adalah tari primitif. Contoh dari primitif ini adalah tari Belian Sentiyu yang berasal dari suku Dayak Kalimantan Timur. Lebih tepatnya, tarian ini berasal dari suku Dayak Tonyooi dan suku Dayak Benuaq.
 
-Tujuan dari [**pengertian seni tari**](https://34.126.127.69/pengertian-seni-tari/) ini adalah agar dapat mengusir roh jahat dan membantu menyembuhkan penyakit.
+Tujuan dari [**pengertian seni tari**](https://besttutorial.net/pengertian-seni-tari/) ini adalah agar dapat mengusir roh jahat dan membantu menyembuhkan penyakit.
 
 2. ### Tari Rakyat
     
@@ -194,7 +194,7 @@ Tidak hanya itu, di kawasan Bali ada juga tari Legong yang menjadi tari dengan l
 3. ### Tari Daerah DKI Jakarta
     
 
-Berikutnya adalah tari daerah DKI Jakarta. Contoh tarian di kawasan ini adalah tari Topeng yang merupakan model tarian tradisional dari suku Betawi yang dikhususkan untuk menyambut tamu agung. Sebagaimana [****kesenian dari Banten****](https://34.126.127.69/kesenian-dari-banten/).
+Berikutnya adalah tari daerah DKI Jakarta. Contoh tarian di kawasan ini adalah tari Topeng yang merupakan model tarian tradisional dari suku Betawi yang dikhususkan untuk menyambut tamu agung. Sebagaimana [****kesenian dari Banten****](https://besttutorial.net/kesenian-dari-banten/).
 
 Ragam tari daerah DKI Jakarta yang selanjutnya adalah Tari Yopong yang menjadi jenis tari untuk tujuan penghormatan para elit dan tamu negara. Selain itu, tari ini juga berfungsi untuk persembahan.
 

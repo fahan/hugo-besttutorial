@@ -208,7 +208,7 @@ Bagaimana menurut kamu?  Mudah kan.
 
 * * *
 
-Kamu bisa mencoba semua metode yang sudah dipaparkan diatas untuk membuat bootable flashdisk, entah itu untuk [menginstal windows 10](https://34.126.127.69/tutorial-cara-instal-windows-10/) atau versi windows lainnya bahkan Linux.
+Kamu bisa mencoba semua metode yang sudah dipaparkan diatas untuk membuat bootable flashdisk, entah itu untuk [menginstal windows 10](https://besttutorial.net/tutorial-cara-instal-windows-10/) atau versi windows lainnya bahkan Linux.
 
 Supaya menambah wawasan dan keahlianmu dalam bidang IT.
 

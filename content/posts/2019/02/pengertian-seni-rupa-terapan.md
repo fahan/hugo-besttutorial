@@ -10,7 +10,7 @@ coverImage: "macam-macam-kerajinan.jpg"
 slug: "pengertian-seni-rupa-terapan"
 ---
 
-[Seni rupa](https://34.126.127.69/pengertian-seni-rupa/) dengan berbagai jenisnya menjadi salah satu aspek yang cukup menarik di kalangan masyarakat. Salah satu jenis karya seni rupa ini adalah seni rupa terapan yang memiliki peran cukup penting dalam berbagai aspek kehidupan. Oleh karena itu, mengenal lebih jauh pengertian seni rupa terapan dan beberapa aspek darinya menjadi cukup penting.
+[Seni rupa](https://besttutorial.net/pengertian-seni-rupa/) dengan berbagai jenisnya menjadi salah satu aspek yang cukup menarik di kalangan masyarakat. Salah satu jenis karya seni rupa ini adalah seni rupa terapan yang memiliki peran cukup penting dalam berbagai aspek kehidupan. Oleh karena itu, mengenal lebih jauh pengertian seni rupa terapan dan beberapa aspek darinya menjadi cukup penting.
 
 Hal ini semakin menarik jika mengingat bahwa tidak semua orang mengenal secara mendalam tentang karya seni rupa terapan tersebut. Oleh karena itu, langsung saja simak beberapa ulasan lebih jauh tentang karya seni rupa terapan sebagaimana di bahas di bawah ini.
 
@@ -58,7 +58,7 @@ Berbicara mengenai seni rupa terapan, sebelum masuk pada contoh seni rupa terapa
 
 ### **1\. Seni Kriya**
 
-[Seni kriya](https://34.126.127.69/pengertian-seni-kriya/) merupakan salah satu jenis dari seni rupa terapan yang sebenarnya sudah sering sekali Anda jumpai di sekeliling. Dalam hal ini seni kriya memiliki karateristik tersendiri di mana dalam pembuatannya menggunakan keterampilan tangan seniman. Tidak hanya kreativitas tapi perlu kecekatan dalam proses tersebut. Sejauh ini ada banyak pula contohnya yang bisa di jumpai.
+[Seni kriya](https://besttutorial.net/pengertian-seni-kriya/) merupakan salah satu jenis dari seni rupa terapan yang sebenarnya sudah sering sekali Anda jumpai di sekeliling. Dalam hal ini seni kriya memiliki karateristik tersendiri di mana dalam pembuatannya menggunakan keterampilan tangan seniman. Tidak hanya kreativitas tapi perlu kecekatan dalam proses tersebut. Sejauh ini ada banyak pula contohnya yang bisa di jumpai.
 
 ### **2\. Seni Arsitektur**
 
@@ -92,7 +92,7 @@ Kebutuhan akan keramik sejauh ini tidak pernah ada habisnya. Sedangkan keramik s
 
 Merujuk pada pengertian seni rupa terapan, anyaman yang memiliki estetika cukup tinggi juga masuk pada salah satu contoh yang banyak beredar. Seni tersebut berasal dari perakitan serat maupun bahan lainnya untuk di jadikan anyaman berbentuk menarik.
 
-Anyaman juga merupakan salah satu [kerajinan tangan](https://34.126.127.69/pengertian-kerajinan/) yang populer di Indonesia. Bahan-bahan yang biasa di gunakan dalam pembuatan serat ini seperti bambu, rotan, serabut kelapa, dan lain sebagainya.
+Anyaman juga merupakan salah satu [kerajinan tangan](https://besttutorial.net/pengertian-kerajinan/) yang populer di Indonesia. Bahan-bahan yang biasa di gunakan dalam pembuatan serat ini seperti bambu, rotan, serabut kelapa, dan lain sebagainya.
 
 ### **4\. Kerajinan Logam**
 

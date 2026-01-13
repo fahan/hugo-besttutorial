@@ -65,7 +65,7 @@ panictank.net | Sejarah Sistem Operasi
 
 </figure>
 
-Ada perbedaan [definisi komputer](https://34.126.127.69/pengertian-komputer/) antara komputer jaman dulu dengan komputer jaman sekarang begitu jauh. Sehingga anak jaman sekarang mungkin tidak akan menyangka kalo komputer jaman dahulu ukurannya begitu besaar.
+Ada perbedaan [definisi komputer](https://besttutorial.net/pengertian-komputer/) antara komputer jaman dulu dengan komputer jaman sekarang begitu jauh. Sehingga anak jaman sekarang mungkin tidak akan menyangka kalo komputer jaman dahulu ukurannya begitu besaar.
 
 Hal ini berhubungan dengan sejarah Sistem Operasi yang berkembang mengikuti kebutuhan perangkat komputer yang meningkat. Sistem Operasi mengalami perkembangan yang sangat pesat yang dibagi kedalam lima generasi:
 
@@ -219,7 +219,7 @@ computingforever.com | sejarah sistem operasi
 
 </figure>
 
-Perkembangan komputer dari generasi pertama sampai generasi sekarang ini menyebabkan banyaknya [macam-macam sistem operasi](https://34.126.127.69/macam-macam-sistem-operasi/) yang tercipta untuk memenuhi kebutuhan pengguna dan menyesuaikan kemampuan komputer yang ada, berikut ini sejarah perkembangannya.
+Perkembangan komputer dari generasi pertama sampai generasi sekarang ini menyebabkan banyaknya [macam-macam sistem operasi](https://besttutorial.net/macam-macam-sistem-operasi/) yang tercipta untuk memenuhi kebutuhan pengguna dan menyesuaikan kemampuan komputer yang ada, berikut ini sejarah perkembangannya.
 
 ### Tahun 1980
 
@@ -227,7 +227,7 @@ Sejarah sistem operasi pertama dimulai ketika komputer pertama yang memiliki Sis
 
 QDOS _(Quick and Dirty Operating System)_ adalah rancangan tim Peterson dari perusahaan _Seattle Computer_ yang sebelumnya memiliki nama 86-DOS, karena sebelumnya dirancang untuk prosesor Intel 8086.
 
-Sampai kemudian lisensinya dibeli oleh Bill Gates dan Dia meraup keuntungan besar dengan menjualnya keberbagai perusahaan komputer, ini merupakan sejarah awal dari [sistem operasi windows](https://34.126.127.69/sistem-operasi-windows/).
+Sampai kemudian lisensinya dibeli oleh Bill Gates dan Dia meraup keuntungan besar dengan menjualnya keberbagai perusahaan komputer, ini merupakan sejarah awal dari [sistem operasi windows](https://besttutorial.net/sistem-operasi-windows/).
 
  
 

@@ -33,7 +33,7 @@ Menurut beberapa pendapat, musik mengandung suatu norma dan nilai yang menjadi w
 
 Musik memiliki beragam fungsi dalam kehidupan manusia. Tentu saja tidak hanya untuk keindahan, namun juga untuk pendidikan dan aneka fungsi yang lain. Dan berikut ini adalah beberapa fungsi musik tradisional dan lain sebagainya yang wajib Anda ketahui.
 
-1. Sebagai sarana mengungkapkan emosi yang ada. Baik emosi yang dimiliki oleh pemilik lagu ataupun pendengar musik. Sebagaimana fungsi dari [****Jenis-jenis**** ****tari****](https://34.126.127.69/jenis-jenis-tari/).
+1. Sebagai sarana mengungkapkan emosi yang ada. Baik emosi yang dimiliki oleh pemilik lagu ataupun pendengar musik. Sebagaimana fungsi dari [****Jenis-jenis**** ****tari****](https://besttutorial.net/jenis-jenis-tari/).
 2. Sebagai sarana untuk hiburan karena jika dimainkan dengan baik akan menghasilkan suara yang terbaik, ramai dan juga menghibur para khalayak umum.
 3. Sebagai sarana bisnis karena musik yang diolah dengan beragam kreasi akan menjadi ladang bisnis menguntungkan.
 4. Sebagai sarana untuk menenangkan jiwa karena ragam Jenis-jenis musik memiliki efek penenangan dan relaksasi tersendiri.
@@ -63,7 +63,7 @@ Selain dapat membantu meningkatkan kesehatan tubuh, musik ternyata juga memiliki
 3. ### Meningkatkan Kecerdasan
     
 
-Manfaat lain dari musik adalah meningkatkan intelegensi. Hal ini disebabkan karena adanya rangsangan ritmis yang dapat membantu tingkatkan kinerja otak manusia. Musik dalam [****pengertian seni****](https://34.126.127.69/pengertian-seni/) dapat menghasilkan ritme interbal yang dapat menjadikan saraf otak bekerja.
+Manfaat lain dari musik adalah meningkatkan intelegensi. Hal ini disebabkan karena adanya rangsangan ritmis yang dapat membantu tingkatkan kinerja otak manusia. Musik dalam [****pengertian seni****](https://besttutorial.net/pengertian-seni/) dapat menghasilkan ritme interbal yang dapat menjadikan saraf otak bekerja.
 
 4. Membantu Ciptakan Perdamaian dan Solidaritas Kemanusiaan
 
@@ -136,7 +136,7 @@ Tidak hanya itu, masih ada jenis musik lain yang dikenal dengan istilah musik bl
 
 Pada awal mulanya, musik ini adalah musik untuk tujuan pujian di kawasan Amerika untuk budak dari Afrika. Sehingga, kesan yang ditawarkan oleh musik ini berciri sedih. Beberapa aliran musik yang mendapatkan pengaruh darinya adalah Hip Hop,R & B, pop, jazz dan lain sebagainya.
 
-Adapun contoh dari musik yang memiliki aliran blues ini adalah Muddy Waters, Robert Jonshon, Jimi Hendrix, B.B. King dan lain sebagainya. Musik ini tidak kalah menarik dari [****pengertian seni teater****](https://34.126.127.69/pengertian-seni-teater/) yang ada.
+Adapun contoh dari musik yang memiliki aliran blues ini adalah Muddy Waters, Robert Jonshon, Jimi Hendrix, B.B. King dan lain sebagainya. Musik ini tidak kalah menarik dari [****pengertian seni teater****](https://besttutorial.net/pengertian-seni-teater/) yang ada.
 
 8. ### Jenis Musik Reggae
     

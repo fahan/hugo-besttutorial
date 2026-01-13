@@ -302,9 +302,9 @@ Universitas Helshinki adalah salah satu universitas terbaik dalam bidang kesehat
 
 Itulah 11 Jurusan Kuliah Terbaik yang dapat dijadikan sebagai referensi dalam memilih jurusan kuliah, bagi kamu yang mau melanjutkan studi lanjut di luar negeri.
 
-Ada juga loh [kuliah gratis](https://34.126.127.69/kuliah-online-gratis-bersertifikat) bagi kamu yang suka gratisan , hihihi, kamu bisa dapatkan secara online dan tentunya _FREE_. 
+Ada juga loh [kuliah gratis](https://besttutorial.net/kuliah-online-gratis-bersertifikat) bagi kamu yang suka gratisan , hihihi, kamu bisa dapatkan secara online dan tentunya _FREE_. 
 
-Sedangkan bagi kamu yang ingin kuliah di dalam negeri kamu bisa mencari beberapa referensi jurusan kuliah di beberapa jurusan kuliah di berbagai Universitas ternama di Indonesia, seperti [Jurusan Kuliah di UGM](https://34.126.127.69/jurusan-di-ugm/), UI, ITB dan lain-lain.
+Sedangkan bagi kamu yang ingin kuliah di dalam negeri kamu bisa mencari beberapa referensi jurusan kuliah di beberapa jurusan kuliah di berbagai Universitas ternama di Indonesia, seperti [Jurusan Kuliah di UGM](https://besttutorial.net/jurusan-di-ugm/), UI, ITB dan lain-lain.
 
 Demikian Artikel tentang 11 Jurusan Kuliah Terbaik di Dunia semoga bisa bermanfaat bagi kamu yang ingin melanjutkan studi lanjut.  
 

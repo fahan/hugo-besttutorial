@@ -9,11 +9,11 @@ coverImage: "computer.jpg"
 slug: "pengertian-komputer"
 ---
 
-Hampir seluruh orang di dunia bahkan anak-anakpun mengetahui apa yang namanya komputer, bahkan dapat mengoperasikannya dengan baik. Sehingga sudah semestinya semua orang tau pengertian komputer secara fundamentalnya, apa lagi komputer merupakan pondasi dari [mata kuliah jurusan TI](https://34.126.127.69/daftar-mata-kuliah-teknik-informatika/).   
+Hampir seluruh orang di dunia bahkan anak-anakpun mengetahui apa yang namanya komputer, bahkan dapat mengoperasikannya dengan baik. Sehingga sudah semestinya semua orang tau pengertian komputer secara fundamentalnya, apa lagi komputer merupakan pondasi dari [mata kuliah jurusan TI](https://besttutorial.net/daftar-mata-kuliah-teknik-informatika/).   
 
 Dari berbagai sektor di kehidupan manusia tidak pernah terlepas dari yang namanya komputer dari mulai pusat pertokoan, kantor, perbankan, pendidikan bahkan di rumah sekalipun.
 
-Perkembangan sejarah komputer beriringan dengan perkembangan [sejarah sistem operasi](https://34.126.127.69/sejarah-sistem-operasi/), yang dimulai generasi pertama sampai sekarang . 
+Perkembangan sejarah komputer beriringan dengan perkembangan [sejarah sistem operasi](https://besttutorial.net/sejarah-sistem-operasi/), yang dimulai generasi pertama sampai sekarang . 
 
 <figure>
 
@@ -71,7 +71,7 @@ Sebenarnya istilah komputer merupakan kata serapan dari bahasa inggris yaitu kat
 
 Pada umumnya komputer merupakan perangkat elektronik yang digunakan untuk melakukan berbagai perhitungan matematis yang rumit, sehingga segala macam perangkat yang memiliki kemampuan menghitung segala rumus matematis, maka perangkat tersebut tergolong dalam komputer. 
 
-Seiring dengan perkembangan teknologi yang semakin pesat apalagi teknologi komputer, membuat pengertian komputer mengalami perluasan makna, dari berdasarkan fungsinya, [komponen komputer](https://34.126.127.69/tiga-komponen-komputer/) tersebut bahkan bentuknya.  
+Seiring dengan perkembangan teknologi yang semakin pesat apalagi teknologi komputer, membuat pengertian komputer mengalami perluasan makna, dari berdasarkan fungsinya, [komponen komputer](https://besttutorial.net/tiga-komponen-komputer/) tersebut bahkan bentuknya.  
 
 Untuk memperdalam pemahaman tentang pengertian komputer maka alangkash baiknya untuk membaca pengertian komputer dari berbagai literatur dibawah ini, dari pengertian yang singkat, definisi dari ahli, dan beberapa sumber lainnya. 
 
@@ -302,7 +302,7 @@ workstation adalah desktop dengan kemampuan prosesor yang lebih kuat, serta memo
 
 ### Server
 
-Server merupakan komputer dengan pengoptimalan terhadap penyampaian layanan kepada komputer lain (komputer cilen) melalui [jaringan komputer](https://34.126.127.69/pengertian-jaringan-komputer/). Server sudah seharusnya memiliki prosesor, memori dan hard drive yang besar sehingga mampu mengakomodir seluruh komputer clien yang terhubung.
+Server merupakan komputer dengan pengoptimalan terhadap penyampaian layanan kepada komputer lain (komputer cilen) melalui [jaringan komputer](https://besttutorial.net/pengertian-jaringan-komputer/). Server sudah seharusnya memiliki prosesor, memori dan hard drive yang besar sehingga mampu mengakomodir seluruh komputer clien yang terhubung.
 
 ### Mainframe
 

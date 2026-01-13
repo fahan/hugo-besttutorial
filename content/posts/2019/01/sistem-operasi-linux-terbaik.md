@@ -9,7 +9,7 @@ coverImage: "sistem-operasi-linux.png"
 slug: "sistem-operasi-linux-terbaik"
 ---
 
-Jika kamu bosan dengan sistem operasi Windows ataupun Mac OS yang kamu miliki. Dari berbagai [macam-macam sistem operasi](https://34.126.127.69/macam-macam-sistem-operasi/), ada alternatif Sistem Operasi lain yang bisa kamu gunakan yaitu Linux, banyak varian Linux yang bisa dikategorikan sebagai sistem operasi linux terbaik serta menjadi OS yang tepat untuk berbagai jenis [komputer](https://34.126.127.69/pengertian-komputer/).
+Jika kamu bosan dengan sistem operasi Windows ataupun Mac OS yang kamu miliki. Dari berbagai [macam-macam sistem operasi](https://besttutorial.net/macam-macam-sistem-operasi/), ada alternatif Sistem Operasi lain yang bisa kamu gunakan yaitu Linux, banyak varian Linux yang bisa dikategorikan sebagai sistem operasi linux terbaik serta menjadi OS yang tepat untuk berbagai jenis [komputer](https://besttutorial.net/pengertian-komputer/).
 
 Linux menawarkan sejumlah sistem operasi luar biasa yang disebut juga **distro**, dan semuanya memiliki fitur yang berbeda-beda. Semua distro Linux dirancang untuk pengguna tertentu.
 
@@ -129,7 +129,7 @@ Sistem operasi ini sempurna untuk pembuatan animasi, pemodelan 3D, pengkomposisi
 
 Iro sangat nyaman digunakan untuk setiap jenis pengguna dan dapat dijalankan dari DVD ataupun USB Flashdisk. Iro adalah produksi lengkap CG yang disusun dalam satu paket.
 
-Sehingga kamu tidak memerlukan [komponen komputer](https://34.126.127.69/tiga-komponen-komputer/) berspesifikasi tinggi untuk bisa menjalankan OS ini cukup menggunakan DVD atau Flashdisk.
+Sehingga kamu tidak memerlukan [komponen komputer](https://besttutorial.net/tiga-komponen-komputer/) berspesifikasi tinggi untuk bisa menjalankan OS ini cukup menggunakan DVD atau Flashdisk.
 
 ## 7\. Arch Linux
 

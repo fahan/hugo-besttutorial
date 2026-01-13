@@ -23,11 +23,11 @@ Dilansir dari [Turbofuture](https://turbofuture.com/computers/The-Four-Main-Cate
 - Perangkat Keluaran (_Output Device_)
 - Perangkat Penyimpanan (_Storage Device_)
 
-Dari sekian banyak perangkat yang berhubungan dengan [komputer](https://34.126.127.69/pengertian-komputer) yang ada di dunia, semuanya terbagi dalam keempat klasifikasi diatas.
+Dari sekian banyak perangkat yang berhubungan dengan [komputer](https://besttutorial.net/pengertian-komputer) yang ada di dunia, semuanya terbagi dalam keempat klasifikasi diatas.
 
 Kebanyakaan dari perangkat yang ada adalah perangkat input dan perangkat output komputer yang sangat banyak jenisnya dari mulai perangkat _display,_ suara, dan cetak.
 
-Pembahasan tentang perangkat keras komputer sangat diperlukan bagi kamu yang sedang kuliah di jurusan IT, karena hampir semua [mata kuliah teknik informatika](https://34.126.127.69/daftar-mata-kuliah-teknik-informatika/) berhubungan dengan perangkat keras komputer.
+Pembahasan tentang perangkat keras komputer sangat diperlukan bagi kamu yang sedang kuliah di jurusan IT, karena hampir semua [mata kuliah teknik informatika](https://besttutorial.net/daftar-mata-kuliah-teknik-informatika/) berhubungan dengan perangkat keras komputer.
 
 Untuk pembahasan lebih mendetail tentang pembagian perangkat keras pada komputer ada dalam ulasan di bawah ini.
 
@@ -122,7 +122,7 @@ pixabay.com
 
 </figure>
 
-_Ethernet/Network Device_ merupakan jembatan penghubung antara komputer dengan internet, sehingga digunakan untuk memasukkan data dari internet melalui kabel yang tertancap pada ethernet untuk membuat  apa yang disebut [jaringan komputer](https://34.126.127.69/pengertian-jaringan-komputer/).
+_Ethernet/Network Device_ merupakan jembatan penghubung antara komputer dengan internet, sehingga digunakan untuk memasukkan data dari internet melalui kabel yang tertancap pada ethernet untuk membuat  apa yang disebut [jaringan komputer](https://besttutorial.net/pengertian-jaringan-komputer/).
 
 Sebagai contoh yaitu _Ethernet hardware and Bluetooth/wireless hardware, Router_ serta _hub/switch._
 

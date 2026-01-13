@@ -25,7 +25,7 @@ Tentunya bukan keduanya karena saya menganggap menulis itu sangat sulit. Jadi bi
 
 \[caption id="attachment\_90" align="alignnone" width="800"\]![pengalaman menulis skripsi menjadi sarjana](/images/graduation.jpg) pixabay.com | Sarjana Skripsi\[/caption\]
 
-Karena itu juga alhamdulillah saya bisa menjadi sarjana dengan menulis skripsi. Dari hal ini udah kelihatan kan ya korelasinya dengan judul artikel ini. Yap betul skripsi adalah salah satu pengalaman menulis saya saat menjadi seorang [mahasiswa IT](https://34.126.127.69/pengalaman-mahasiswa-it/), tapi bukan yang pertama juga sih. Masih banyak lagi sih pegalaman menulis, contohnya menulis surat cinta XD.
+Karena itu juga alhamdulillah saya bisa menjadi sarjana dengan menulis skripsi. Dari hal ini udah kelihatan kan ya korelasinya dengan judul artikel ini. Yap betul skripsi adalah salah satu pengalaman menulis saya saat menjadi seorang [mahasiswa IT](https://besttutorial.net/pengalaman-mahasiswa-it/), tapi bukan yang pertama juga sih. Masih banyak lagi sih pegalaman menulis, contohnya menulis surat cinta XD.
 
 Namun, yang mau saya ceritain disini adalah tentang bagaimana saya pertama kali menulis tentang pengalaman pribadi saya. Kedengarannya blunder ya, karena sebenarnya artikel ini merupakan pengalaman pertama saya menulis artikel di sebuah website secara serius.
 

@@ -10,7 +10,7 @@ coverImage: "pengertian-seni-rupa-murni.png"
 slug: "pengertian-seni-rupa-murni"
 ---
 
-Sejauh kehidupan manusia sejak dahulu hingga sekarang tentu saja tidak pernah lepas dari yang namanya seni, khususnya untuk jenis seni rupa. Dalam hal ini, [seni rupa](https://34.126.127.69/pengertian-seni-rupa/) sendiri di kenal dalam dua jenis, yakni seni rupa murni dan [seni rupa terapan](https://34.126.127.69/pengertian-seni-rupa-terapan/). Seni rupa murni adalah seni dasar yang sudah muncul sejak awal. Karena itu, perlu di kenal lebih jauh pengertian seni rupa murni tersebut.
+Sejauh kehidupan manusia sejak dahulu hingga sekarang tentu saja tidak pernah lepas dari yang namanya seni, khususnya untuk jenis seni rupa. Dalam hal ini, [seni rupa](https://besttutorial.net/pengertian-seni-rupa/) sendiri di kenal dalam dua jenis, yakni seni rupa murni dan [seni rupa terapan](https://besttutorial.net/pengertian-seni-rupa-terapan/). Seni rupa murni adalah seni dasar yang sudah muncul sejak awal. Karena itu, perlu di kenal lebih jauh pengertian seni rupa murni tersebut.
 
 Selain pengertiannya, ada beberapa aspek lain yang tidak kalah penting terkait dengan seni rupa murni ini seperti fungsinya seperti apa dan bagaimana contoh-contohnya. Mengetahui lebih jauh contoh tersebut akan membuat Anda memiliki gambaran yang lebih tepat terkait apa dan bagaimana seni rupa murni ini.
 
@@ -192,7 +192,7 @@ pixabay.com
 
 </figure>
 
-Penggunaan seni ukir yang sengaja hanya di jadikan sebagai hiburan atau semacamnya merupakan salah satu contoh seni rupa murni yang di aplikasikan. Selain itu juga dimanfaatkan dalam pembuatan suatu [kerajinan](https://34.126.127.69/pengertian-kerajinan/).
+Penggunaan seni ukir yang sengaja hanya di jadikan sebagai hiburan atau semacamnya merupakan salah satu contoh seni rupa murni yang di aplikasikan. Selain itu juga dimanfaatkan dalam pembuatan suatu [kerajinan](https://besttutorial.net/pengertian-kerajinan/).
 
 Sejauh ini banyak seni rupa ukir yang tidak di fungsikan untuk manfaat tertentu. Namun, jika dilihat dari sisi estetika, seni rupa ukir ini memberikan nilai keindahan yang sangat tinggi.
 
@@ -228,7 +228,7 @@ pixabay.com
 
 Selain seni ukir, ada juga seni pahat yang banyak di aplikasikan dalam kehidupan. Seni pahat di lakukan dengan memahat media berupa kayu, dan nantinya akan memberikan sebuah bentuk yang menarik sebagai salah satu hasil seni rupa murni.
 
-Seni pahat biasanya difungsikan dalam pembuatan patung atau furnitur yang berbahan kayu yang tekniknya hampir mirip dengan seni ukir untuk membuat [macam-macam kerajinan](https://34.126.127.69/kerajinan-dari-barang-bekas/).
+Seni pahat biasanya difungsikan dalam pembuatan patung atau furnitur yang berbahan kayu yang tekniknya hampir mirip dengan seni ukir untuk membuat [macam-macam kerajinan](https://besttutorial.net/kerajinan-dari-barang-bekas/).
 
 ### **10\. Seni Koreografi**
 

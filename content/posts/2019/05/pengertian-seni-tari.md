@@ -38,7 +38,7 @@ Para ahli juga memiliki pandangan tersendiri mengenai pengertian seni tari. Sehi
 1. ### Pengertian Seni Tari Menurut Cooric Hartong
     
 
-Seni tari menurut pandangan Cootic Hartong adalah suatu gerak badan yang memiliki nuansa ritmis khusus yang dilaksanakan di ruang dan waktu tertentu. Ini hampir sama dengan [****pengertian musik tradisional****](https://34.126.127.69/pengertian-musik-tradisional/).
+Seni tari menurut pandangan Cootic Hartong adalah suatu gerak badan yang memiliki nuansa ritmis khusus yang dilaksanakan di ruang dan waktu tertentu. Ini hampir sama dengan [****pengertian musik tradisional****](https://besttutorial.net/pengertian-musik-tradisional/).
 
 2. ### Pengertian Seni Tari Menurut Aristoteles
     
@@ -96,7 +96,7 @@ Pengertian seni tari sesungguhnya memiliki beragam fungsi di dalamnya. Dalam ha
 
 Fungsi dari seni tari yang pertama adalah sebagai salah satu bentuk upacara adat serta keagamaan. Seni tari sebagai sarana keagamaan ini sebenarnya sudah menjadi tradisi sejak lama. Hal ini dapat dibuktikan dengan adanya beberapa kebudayaan lokal dan juga kebudayaan asing yang mempraktikkannya.
 
-Beberapa di antara mereka menjadikan seni tari sebagai salah satu media ibadah dan sarana untuk melakukan komunikasi dengan Dewa. Sebagai contoh adalah apa yang menjadi tradisi bagi rakyat Bali yang salah satu wujud ibadahnya adalah seni tari yang memiliki [****nama tarian daerah****](https://34.126.127.69/nama-tarian-daerah/) tertentu.
+Beberapa di antara mereka menjadikan seni tari sebagai salah satu media ibadah dan sarana untuk melakukan komunikasi dengan Dewa. Sebagai contoh adalah apa yang menjadi tradisi bagi rakyat Bali yang salah satu wujud ibadahnya adalah seni tari yang memiliki [****nama tarian daerah****](https://besttutorial.net/nama-tarian-daerah/) tertentu.
 
 Secara umum, seni tari yang berkaitan dengan keagamaan akan dipertontonkan pada acara khusus di waktu tertentu. Sehingga, sifatnya pun terasa lebih sakral dan hanya bisa dilakukan oleh kalangan tertentu. Di antara contoh tarian keagamaan rakyat Bali adalah Tari Sanghyang, Tari Kecak dan Tari Rejang.
 
@@ -126,7 +126,7 @@ Banyak orang yang cenderung mencari pengalaman batin dengan jalan melihat tarian
 
 \[caption id="attachment\_2588" align="aligncenter" width="1024"\]![contoh tari erotis (tari jaipongan)](/images/contoh-tari-erotis-tari-jaipongan.jpg) Tari Jaipong Via perpek.com\[/caption\]
 
-Sebagaimana jenis seni yang lain, misalnya [****jenis-jenis musik****](https://34.126.127.69/jenis-jenis-musik/), seni tari juga terdiri dari beberapa unsur penting yang membangunnya. Setidaknya, ada tiga unsur utama yang membentuk seni tari. Tiga unsur tersebut harus ada di dalamnya. Berikut rinciannya.
+Sebagaimana jenis seni yang lain, misalnya [****jenis-jenis musik****](https://besttutorial.net/jenis-jenis-musik/), seni tari juga terdiri dari beberapa unsur penting yang membangunnya. Setidaknya, ada tiga unsur utama yang membentuk seni tari. Tiga unsur tersebut harus ada di dalamnya. Berikut rinciannya.
 
 1. ### Irama atau Wirama
     
@@ -260,7 +260,7 @@ Dari sini dapat dipahami bahwa sesungguhnya tenaga sangat berpengaruh kepada bai
 
 \[caption id="attachment\_2590" align="aligncenter" width="800"\]![tari hopong](/images/tari-hopong.jpg) tari hopong Via infobudayaindonesia.com\[/caption\]
 
-Ada beragam [**jenis seni tari**](https://34.126.127.69/jenis-jenis-tari/) yang berkembang di Indonesia. Baik tari yang masih murni hingga jenis tari yang telah mengalami modifikasi. Berikut ini adalah beberapa seni tari yang berkembang di Indonesia.
+Ada beragam [**jenis seni tari**](https://besttutorial.net/jenis-jenis-tari/) yang berkembang di Indonesia. Baik tari yang masih murni hingga jenis tari yang telah mengalami modifikasi. Berikut ini adalah beberapa seni tari yang berkembang di Indonesia.
 
 1. ### Tari Nusantara atau Tradisional
     

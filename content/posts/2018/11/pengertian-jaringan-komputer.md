@@ -10,7 +10,7 @@ coverImage: "pengertian-jaringan-komputer.jpg"
 slug: "pengertian-jaringan-komputer"
 ---
 
-Untuk memahami tentang apa itu jaringan komputer diperlukan pemahaman mendasar mengenai [pengertian komputer](https://34.126.127.69/pengertian-komputer/), sehingga akan lebih mudah dalam memahami pengertian jaringan komputer. 
+Untuk memahami tentang apa itu jaringan komputer diperlukan pemahaman mendasar mengenai [pengertian komputer](https://besttutorial.net/pengertian-komputer/), sehingga akan lebih mudah dalam memahami pengertian jaringan komputer. 
 
 Sederhananya jaringan komputer dapan didefinisikan sebagai sekelompok komputer terhubung satu sama lain.
 
@@ -58,7 +58,7 @@ Dari sudut pandang masyarakat umum (pengertian secara umum), pengertian jaringan
 
 Bisa disebut jaringan komputer jika ada dua komputer atau lebih dan perangkat pedukung lainnya berupa printer dan modem yang terhubung secara bersamaan sehingga memungkinkan adanya komunikasi antara satu dengan lainnya.
 
-Dengan demikian akan memudahkan perintah _sharing_ data, [perangkat keras komputer](https://34.126.127.69/perangkat-keras-komputer/) dan _resource_ lainnya. “Komunikai” antar komputer maksudnya setiap komputer yang terhubung bisa mengirimkan informasi satu sama lain.
+Dengan demikian akan memudahkan perintah _sharing_ data, [perangkat keras komputer](https://besttutorial.net/perangkat-keras-komputer/) dan _resource_ lainnya. “Komunikai” antar komputer maksudnya setiap komputer yang terhubung bisa mengirimkan informasi satu sama lain.
 
 ## Definisi Jaringan Komputer Menurut Para Ahli
 
@@ -118,7 +118,7 @@ Komputer yang _request service_ disebut sebagai klien (_client_) dan yang menye
 
 Proses terhubungnya dua buah komputer yang masing-masing memiliki interface jaringan yang disebut _Ethernet_ dan _Wi-Fi_, kemudian dihubungkan melalui kabel (untuk _Ethernet_) maupun nirkabel (untuk _Wi-Fi_) sebagai medium transmisi data.
 
-Terdapat sistem operasi jaringan yang akan membantu mengelola sebuah jaringan komputer yang sederhana seperti [sistem operasi windows server](https://34.126.127.69/sistem-operasi-windows/). Selain itu untuk membuat jaringan komputer dengan skala lebih luas lagi, maka harus menggunakan perangkat seperti _Hub, Router, Gateway_, _Switch, Bridge,_ sebagai penghubungnya.
+Terdapat sistem operasi jaringan yang akan membantu mengelola sebuah jaringan komputer yang sederhana seperti [sistem operasi windows server](https://besttutorial.net/sistem-operasi-windows/). Selain itu untuk membuat jaringan komputer dengan skala lebih luas lagi, maka harus menggunakan perangkat seperti _Hub, Router, Gateway_, _Switch, Bridge,_ sebagai penghubungnya.
 
 ## Definisi Jaringan Komputer Menurut KBBI
 

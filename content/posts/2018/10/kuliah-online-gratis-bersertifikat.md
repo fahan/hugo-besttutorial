@@ -270,7 +270,7 @@ Ada lebih banyak lagi platform kuliah online gratis yang tersedia di Internet ya
 
 Dari semua platform atau situs yang telah disebutkan diatas mungkin kami tertarik untuk mencobanya.
 
-Sebelum mencoba alangkah lebih baik kenali dulu [jurusan-jurusan kuliah terbaik](https://34.126.127.69/jurusan-kuliah-terbaik) yang ada untuk melihat kecocokanmu dengan jurusan kuliah yang kamu tuju. Sebagai contoh jika kamu ingin kuliah di UGM kenali dulu [jurusan di UGM](https://34.126.127.69/jurusan-di-ugm), sehingga kamu tidak akan samapi salah pilih jurusan. 
+Sebelum mencoba alangkah lebih baik kenali dulu [jurusan-jurusan kuliah terbaik](https://besttutorial.net/jurusan-kuliah-terbaik) yang ada untuk melihat kecocokanmu dengan jurusan kuliah yang kamu tuju. Sebagai contoh jika kamu ingin kuliah di UGM kenali dulu [jurusan di UGM](https://besttutorial.net/jurusan-di-ugm), sehingga kamu tidak akan samapi salah pilih jurusan. 
 
 Demikian artikel tentang platform kuliah online secara gratis, semoga bermanfaat, 
 

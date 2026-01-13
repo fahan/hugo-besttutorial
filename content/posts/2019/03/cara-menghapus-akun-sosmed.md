@@ -94,7 +94,7 @@ Ketika Anda sudah memilih untuk nonaktifkan akun tersebut, maka selanjutnya yang
 
 Setelah serangkaian cara menghapus akun di twitter ini berhasil, maka akun Anda pun sudah terhapus secara permanen. Artinya akun ini sudah tidak dapat dikembalikan maupun di gunakan lagi. Username maupun password dan email yang terdaftar pun datanya sudah dihapus dengan satu klik konfirmasi Anda sebelumnya.
 
-[**\*cara video call di Sosmed**](https://34.126.127.69/cara-video-call/)
+[**\*cara video call di Sosmed**](https://besttutorial.net/cara-video-call/)
 
 ## ****Cara Hapus Akun [Gmail](https://gmail.com)****
 

@@ -72,7 +72,7 @@ Untuk keperluan upgrade, dimana laptop dilengkapi dua slop RAM. Dengan mengetahu
 
 4
 
-Sebagai langkah awal sebelum melakukan instalasi sistem operasi, seperti [instalasi sistem operasi windows 10](https://34.126.127.69/tutorial-cara-instal-windows-10/), sehingga tahu kemampuan laptop dalam menjalankan sistem operasi yang sesuai.  
+Sebagai langkah awal sebelum melakukan instalasi sistem operasi, seperti [instalasi sistem operasi windows 10](https://besttutorial.net/tutorial-cara-instal-windows-10/), sehingga tahu kemampuan laptop dalam menjalankan sistem operasi yang sesuai.  
 
 ## Aneka Cara Mengetahui Spesifikasi Laptop
 
@@ -80,7 +80,7 @@ Sebagai langkah awal sebelum melakukan instalasi sistem operasi, seperti [instal
 
 Langkah-langkah atau cara untuk dapat mengetahui spesifikasi laptop, antara lain bisa menggunakan beberapa cara dibawah ini:
 
-**Baca [Cara Instal Aplikasi Whatsapp di Laptop](https://34.126.127.69/cara-instal-wa-di-laptop/).**
+**Baca [Cara Instal Aplikasi Whatsapp di Laptop](https://besttutorial.net/cara-instal-wa-di-laptop/).**
 
 ### 1\. Pada Bagian Stiker Laptop
 
@@ -116,7 +116,7 @@ cara melihat spesifikasi laptop menu setting
 
 </figure>
 
-**Baca [Cara Screenshoot Layar Laptop Kamu](https://34.126.127.69/cara-screenshot-di-laptop/).**
+**Baca [Cara Screenshoot Layar Laptop Kamu](https://besttutorial.net/cara-screenshot-di-laptop/).**
 
 Jika kamu menggunakan laptop dengan windows 10 atau windows 8, kamu tinggal pergi ke menu setting => klik system => klik about.
 

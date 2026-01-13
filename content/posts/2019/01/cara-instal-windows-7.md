@@ -160,7 +160,7 @@ Hampir sama dengan _update_, _upgrade_ ini juga belum masuk tahapan instal ulang
 
 Pada umumnya, setelah melakukan update tampilan dan fitur pada perangkat akan berubah. Sedangkan untuk datanya sendiri, baik dalam _update_ maupun upgrade akan aman-aman saja.
 
-Instalasi _upgrade_ akan merubah versi windows ke versi yang lebih baru, cara ini digunakan ketika ingin melakukan [instal windows 10](https://34.126.127.69/tutorial-cara-instal-windows-10) dan .
+Instalasi _upgrade_ akan merubah versi windows ke versi yang lebih baru, cara ini digunakan ketika ingin melakukan [instal windows 10](https://besttutorial.net/tutorial-cara-instal-windows-10) dan .
 
 ### **3\. Dengan** _**Clean**_ **Instal**
 

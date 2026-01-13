@@ -198,7 +198,7 @@ Seperti yang telah disebutkan sebelumnya, saya selalu berusaha menjadi seseorang
 
 Bagaimana?
 
-Saya telah menggunakan [aplikasi produktivitas](https://34.126.127.69/aplikasi-produktivitas) Spar!, yang pada dasarnya adalah aplikasi paling adiktif dan bermanfaat yang pernah saya instal.
+Saya telah menggunakan [aplikasi produktivitas](https://besttutorial.net/aplikasi-produktivitas) Spar!, yang pada dasarnya adalah aplikasi paling adiktif dan bermanfaat yang pernah saya instal.
 
 Saat ini saya dalam tantangan 50-push-up dengan sekitar dua lusin orang. Setiap hari, kami melakukan 50 push-up dan mengunggah bukti video bahwa kami telah melakukannya.
 

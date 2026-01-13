@@ -65,7 +65,7 @@ pixabay.com
 
 Dasar ilmu komputer dan Teknik Informatika adalah ilmu sains dan teknologi, jadi sudah cukup jelas kalau yang berhubungan dengan komputer adalah Matematika, Fisika, dan dasar Elektronika.
 
-Dalam bidang ilmu komputer terbagi menjadi beberapa cabang ilmu untuk bisa memahami [definisi komputer](https://34.126.127.69/pengertian-komputer/) yaitu _Hardware_, _Software,_ Sistem Informasi dan Jaringan Komputer.
+Dalam bidang ilmu komputer terbagi menjadi beberapa cabang ilmu untuk bisa memahami [definisi komputer](https://besttutorial.net/pengertian-komputer/) yaitu _Hardware_, _Software,_ Sistem Informasi dan Jaringan Komputer.
 
 Dari sini sudah terlihat bahwa Teknik Informatika lebih fokus kepada pengembangan _software,_ dimana _software_ selalu berhubungan dengan yang namanya Algoritma yang terbentuk dari model dan logika matematika.
 
@@ -146,7 +146,7 @@ Sebenarnya mata kuliah teknik informatika inti lebih mempelajari tentang bagaima
 
 Maka dari itu seharusnya mata kuliah Sistem Operasi dapat mengajarkan mahasiswa untuk mempraktikan membuat Sistem operasi yang dimulai dari Kernel, pengelolaan memori, _System Call_ dan pengembangan driver untuk perangkat tertentu. 
 
-Namun tidak semua Universitas dapat menerapkan hal tersebut karena terbatas pada Sumber daya pengajar yang kompeten dalam hal ini. Hanya beberapa materi praktik instalasi sistem operasi yang dimulai dengan pemilihan [metode instalasi sistem operasi](https://34.126.127.69/metode-instalasi-sistem-operasi/) yang akan digunakan.
+Namun tidak semua Universitas dapat menerapkan hal tersebut karena terbatas pada Sumber daya pengajar yang kompeten dalam hal ini. Hanya beberapa materi praktik instalasi sistem operasi yang dimulai dengan pemilihan [metode instalasi sistem operasi](https://besttutorial.net/metode-instalasi-sistem-operasi/) yang akan digunakan.
 
 ### Jaringan Komputer
 
@@ -157,7 +157,7 @@ Jaringan Komputer juga merupakan mata kuliah yang lebih komplek lagi sampai diba
 - _Cloud Computing_
 - Implementasi Server
 
-Bagi kamu yang pernah mengenyam pendidikan di Sekolah Menengah Kejuruan (SMK) dengan jurusan Teknik Komputer dan Jaringan (TKJ) pasti sudah sangat familiar dengan materi ini. Biasanya untuk dapat mengikuti mata kuliah ini harus memahami dulu tentang berbagai [perangkat keras komputer](https://34.126.127.69/perangkat-keras-komputer/) yang digunakan dalam jaringan komputer.
+Bagi kamu yang pernah mengenyam pendidikan di Sekolah Menengah Kejuruan (SMK) dengan jurusan Teknik Komputer dan Jaringan (TKJ) pasti sudah sangat familiar dengan materi ini. Biasanya untuk dapat mengikuti mata kuliah ini harus memahami dulu tentang berbagai [perangkat keras komputer](https://besttutorial.net/perangkat-keras-komputer/) yang digunakan dalam jaringan komputer.
 
 ### Pemrograman Berorientasi Objek
 

@@ -15,7 +15,7 @@ slug: "penerapan-hukum-newton"
 
 **Penerapan Hukum Newton -** Kehidupan harian manusia tidak pernah lepas dari yang namanya Hukum Newton. Dimana Hukum Newton merupakan hasil pemikiran Sir Isaac Newton yang terdiri dari tiga hukum fisika.
 
-Untuk mengetahui seperti apa saja contoh penerapan hukum newton yang ada, alangkah lebih baiknya ketahui terlebih dahulu [apa itu Hukum Newton](https://34.126.127.69/hukum-newton), agar mudah materi ini nantinya.
+Untuk mengetahui seperti apa saja contoh penerapan hukum newton yang ada, alangkah lebih baiknya ketahui terlebih dahulu [apa itu Hukum Newton](https://besttutorial.net/hukum-newton), agar mudah materi ini nantinya.
 
 Isaac Newton sebagai penemu hukum newton menuliskannya dalam karyanya yang berjudul _Philosophiae Naturalis Principia Mathematica._
 

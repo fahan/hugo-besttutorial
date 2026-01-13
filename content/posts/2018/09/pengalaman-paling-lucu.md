@@ -17,7 +17,7 @@ Blunder adalah kejadian atau suatu kondisi dimana seseorang melakukan hal ya
 
 Kejadian yang tidak diinginkan bahkan memalukan kadang membuat kita ingin melupakan pengalaman seperti itu, tapi coba deh, kita hadapi saja kejadian blunder yang pernah kita alami dengan santai. Biar kita tidak stres, bahkan kalau kita mengingat-ngingatnya malah membuat kita tertawa-tawa sendiri.
 
-Tidak sedikit pengalaman lucu yang sering kita alami dialami ketika masih kecil, kamu bisa membacanya  dalam artikel [pengalaman masa kecil](https://34.126.127.69/pengalaman-masa-kecil/).
+Tidak sedikit pengalaman lucu yang sering kita alami dialami ketika masih kecil, kamu bisa membacanya  dalam artikel [pengalaman masa kecil](https://besttutorial.net/pengalaman-masa-kecil/).
 
 \[caption id="attachment\_111" align="alignnone" width="800"\]![pengalaman lucu](/images/anak-anak-tertawa.jpg) pixabay.com | anak-anak tertawa\[/caption\]
 
