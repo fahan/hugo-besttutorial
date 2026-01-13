@@ -69,8 +69,8 @@ params:
   
   # Google AdSense Configuration
   googleAdsense:
-    enabled: false  # Set to true when you have your AdSense account approved
-    publisherId: "ca-pub-XXXXXXXXXXXXXXXX"  # Replace with your AdSense Publisher ID
+    enabled: true  # Set to true when you have your AdSense account approved
+    publisherId: "ca-pub-3171822523723030"  # Replace with your AdSense Publisher ID
     autoAds: true  # Enable Google Auto Ads (automatic ad placement)
     inArticleAd: true  # Enable in-article ads (manual placement)
     adSlots:
