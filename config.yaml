@@ -1,4 +1,4 @@
-baseURL: "http://localhost:1313/"
+baseURL: "https://besttutorial.net/"
 languageCode: "id-ID"
 title: "BestTutorial.net"
 theme: "PaperMod"
@@ -66,6 +66,15 @@ params:
   socialIcons:
     - name: "rss"
       url: "/index.xml"
+  
+  # Google AdSense Configuration
+  googleAdsense:
+    enabled: false  # Set to true when you have your AdSense account approved
+    publisherId: "ca-pub-XXXXXXXXXXXXXXXX"  # Replace with your AdSense Publisher ID
+    autoAds: true  # Enable Google Auto Ads (automatic ad placement)
+    inArticleAd: true  # Enable in-article ads (manual placement)
+    adSlots:
+      inArticle: "XXXXXXXXXX"  # Replace with your in-article ad slot ID
 
 # Menu
 menu:

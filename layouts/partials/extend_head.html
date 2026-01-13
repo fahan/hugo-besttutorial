@@ -1,0 +1,11 @@
+{{- if .Site.Params.googleAdsense.enabled -}}
+<!-- Google AdSense -->
+<script async
+    src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client={{ .Site.Params.googleAdsense.publisherId }}"
+    crossorigin="anonymous"></script>
+{{- if .Site.Params.googleAdsense.autoAds -}}
+<script>
+    (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+{{- end -}}
+{{- end -}}
