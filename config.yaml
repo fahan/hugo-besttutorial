@@ -1,4 +1,92 @@
-baseURL: "http://hugo-quickstart-template.netlify.com"
-languageCode: "en-us"
-title: "Netlify + Hugo Quickstart"
-theme: "netlify-basic"
+baseURL: "http://localhost:1313/"
+languageCode: "id-ID"
+title: "BestTutorial.net"
+theme: "PaperMod"
+
+# Pagination
+pagination:
+  pagerSize: 10
+
+# Permalinks - match WordPress structure
+permalinks:
+  posts: /:slug/
+
+# Enable features
+enableRobotsTXT: true
+enableEmoji: true
+buildDrafts: false
+buildFuture: false
+buildExpired: false
+
+# Markup configuration
+markup:
+  goldmark:
+    renderer:
+      unsafe: true
+  highlight:
+    noClasses: false
+
+# Suppress warnings
+ignoreLogs: ['warning-goldmark-raw-html']
+
+# Taxonomies
+taxonomies:
+  category: categories
+  tag: tags
+
+# Outputs
+outputs:
+  home:
+    - HTML
+    - RSS
+    - JSON
+
+# PaperMod specific settings
+params:
+  env: production
+  title: "BestTutorial.net"
+  description: "Tutorial dan Panduan Lengkap"
+  author: "BestTutorial"
+  
+  # Show reading time and word count
+  ShowReadingTime: true
+  ShowWordCount: true
+  ShowShareButtons: true
+  ShowPostNavLinks: true
+  ShowBreadCrumbs: true
+  ShowCodeCopyButtons: true
+  ShowRssButtonInSectionTermList: true
+  
+  # Home page settings
+  homeInfoParams:
+    Title: "Selamat Datang di BestTutorial.net"
+    Content: "Tutorial dan panduan lengkap untuk berbagai topik"
+  
+  # Social icons
+  socialIcons:
+    - name: "rss"
+      url: "/index.xml"
+
+# Menu
+menu:
+  main:
+    - identifier: home
+      name: Home
+      url: /
+      weight: 10
+    - identifier: posts
+      name: Posts
+      url: /posts/
+      weight: 20
+    - identifier: categories
+      name: Categories
+      url: /categories/
+      weight: 30
+    - identifier: tags
+      name: Tags
+      url: /tags/
+      weight: 40
+    - identifier: search
+      name: Search
+      url: /search/
+      weight: 50
